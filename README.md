@@ -4,7 +4,7 @@
   .                                  .              
                 we disconnect alot pls be patient woth us and our grandpa device *  ☁️   
 .              
-                    c+h and interacting is encouraged !!!!! we dont bit we think!!!! unless it says otherwise in our name *  ☁️   
+                    c+h and interacting is encouraged !!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
 .              
                       talk to us about phighting, hollowknight, ultrakill, pressure and portal we lololove them *  ☁️    
 .              
