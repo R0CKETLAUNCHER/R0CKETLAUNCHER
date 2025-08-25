@@ -18,15 +18,15 @@
                 
 <img width="962" height="525" alt="6A8CA38E-9CD3-4F5B-8161-2330DCFD0F73" src="https://github.com/user-attachments/assets/b92613c7-a618-4768-bc5f-92bf0e14a694" />    
 .              
-                    we can be very slowly and overwhelmed at times please be patient with us *  ☁️   
+                    we can be very slowly and overwhelmed at times please be patient with us *  ☁️ 
 .              
                       
 .              
-                      proship, weirdos and bigots dni we block freely *  ☁️   
+                      we can be very quiet and awkward at times especially if we're not around friends *  ☁️   
 .              
                       
 .              
-                      we can be very quiet and awkward at times especially if we're not around friends *  ☁️    
+                    ☁️   ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄   ☁️            
 .              
                       
 .             
@@ -34,7 +34,7 @@
 ##                         .         DNI !!!         
 .              
                       
-              
+
                                                   
                 proshippers/darkshippers and anyone affiliated with anyone who likes that stuff
                 weirdos
