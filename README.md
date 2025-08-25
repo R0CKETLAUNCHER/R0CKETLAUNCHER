@@ -15,5 +15,12 @@
                                                   
                 wake up while its time to go  -  and turn around the opposite way
 
-this is still a wipbtw ok,                
-<img width="962" height="525" alt="6A8CA38E-9CD3-4F5B-8161-2330DCFD0F73" src="https://github.com/user-attachments/assets/b92613c7-a618-4768-bc5f-92bf0e14a694" />
+                
+<img width="962" height="525" alt="6A8CA38E-9CD3-4F5B-8161-2330DCFD0F73" src="https://github.com/user-attachments/assets/b92613c7-a618-4768-bc5f-92bf0e14a694" />    
+.              
+                    we can be very slowly and overwhelmed at times please be patient with us *  ☁️   
+.              
+                      
+.              
+                      proship, weirdos and bigots dni we block freely *  ☁️
+                    
