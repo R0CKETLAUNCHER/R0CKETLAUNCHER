@@ -29,6 +29,19 @@
                       we can be very quiet and awkward at times especially if we're not around friends *  ☁️    
 .              
                       
+.             
+                           
+##                         .         DNI !!!         
 .              
-                           thats it wethink okay thank you for reading !!!
-                    
+                      
+              
+                                                  
+                proshippers/darkshippers and anyone affiliated with anyone who likes that stuff
+                weirdos
+                bigots
+                n*zis / zionists
+                people who make fun of/harrass others with cd/td for fun
+                people who make those weird dick/weirdly suggestive ponies
+                basic criteria pretty much
+                
+                
