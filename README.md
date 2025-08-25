@@ -22,5 +22,13 @@
 .              
                       
 .              
-                      proship, weirdos and bigots dni we block freely *  ☁️
+                      proship, weirdos and bigots dni we block freely *  ☁️   
+.              
+                      
+.              
+                      we can be very quiet and awkward at times especially if we're not around friends *  ☁️    
+.              
+                      
+.              
+                           thats it wethink okay thank you for reading !!!
                     
