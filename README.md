@@ -6,7 +6,7 @@
 .              
                     c+h and interacting is encouraged !!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
 .              
-                      talk to us about phighting, hollowknight, ultrakill, pressure, i/atsv and portal we lololove them *  ☁️    
+                      we lolololove phighting, hollowknight, ultrakill, pressure, i/atsv, statesmp-ish and portal fans prettyplease int *  ☁️    
 .              
                     dnc or else we cry and explode into confetti , ask for inspo *  ☁️    
 .              
