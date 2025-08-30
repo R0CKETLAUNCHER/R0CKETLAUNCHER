@@ -1,5 +1,5 @@
 # ٩(ˊᗜˋ )و
-✶⋆.˚.     
+✶⋆.˚.  🍰 ✶⋆.˚.  
               
   .                                  .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
