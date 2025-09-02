@@ -31,17 +31,17 @@
                       
 .             
                            
-##                         .         DNI !!!         
+##                         .         DNI.        
 .              
                       
 
                                                   
-                proshippers/darkshippers and anyone affiliated with anyone who likes that stuff
+                proshippers/darkshippers 
                 weirdos
                 bigots
                 n*zis / zionists
                 people who make fun of/harrass others with cd/td for fun
                 people who make those weird dick/weirdly suggestive ponies
                 basic criteria pretty much
-                
+                + anyone whos friends or somewhat affiliated with any of these things
                 
