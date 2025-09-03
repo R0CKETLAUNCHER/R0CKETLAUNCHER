@@ -1,7 +1,5 @@
 # ٩(ˊᗜˋ )و
-✶⋆.˚.  ✶⋆.˚.  
-              
-  .                                  .              
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.                                  .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
 .              
                     c+h and interacting is encouraged !!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
