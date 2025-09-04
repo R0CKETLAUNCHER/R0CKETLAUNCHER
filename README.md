@@ -6,7 +6,7 @@
 .              
                       we lolololove phighting, hollowknight, ultrakill, pressure, i/atsv, statesmp-ish and portal fans prettyplease int *  ☁️    
 .              
-                    dnc or else we cry and explode into confetti , ask for inspo *  ☁️    
+                    
 .              
                       
               
