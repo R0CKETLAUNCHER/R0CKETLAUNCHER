@@ -2,7 +2,7 @@
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.                                  .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
 .              
-                    c+h and interacting is encouraged !!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
+                    c+h and interacting is encouraged!!!!! just tell us when cuddling!!!! pls!!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
 .              
                       we lolololove phighting, hollowknight, ultrakill, pressure, i/atsv, statesmp-ish and portal fans prettyplease int *  ☁️    
 .              
