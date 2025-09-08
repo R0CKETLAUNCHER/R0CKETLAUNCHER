@@ -42,4 +42,5 @@
                 people who make those weird dick/weirdly suggestive ponies
                 basic criteria pretty much
                 + anyone whos friends or somewhat affiliated with any of these things
-                
+                we WILL block people before even interacting with them just by seeing their
+                github/ patreon + skin
