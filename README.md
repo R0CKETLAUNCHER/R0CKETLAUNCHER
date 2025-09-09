@@ -1,5 +1,9 @@
 # ٩(ˊᗜˋ )و
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.                                  .              
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.    
+.              
+                    dnc ask for inspooo   
+.              
+                                                     .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
 .              
                     c+h and interacting is encouraged!!!!! just tell us when cuddling!!!! pls!!!!! we dont bite!!!! we think!!!! unless it says otherwise in our name *  ☁️   
