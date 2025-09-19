@@ -1,7 +1,7 @@
 # ٩(ˊᗜˋ )و
  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.    
 .              
-                    dnc ask for inspooo. dont even TRY hiding us   
+                    dnc ask for inspooo. we take copying our ponies (especially ocs) very seriously at times   
 .              
                                                      .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
