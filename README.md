@@ -1,7 +1,7 @@
 # ٩(ˊᗜˋ )و
  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.    
 .              
-                    dnc ask for inspooo please
+                    dnc ask for inspooo.
                     .              
                                                      .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
