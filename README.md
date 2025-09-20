@@ -1,8 +1,8 @@
 # ٩(ˊᗜˋ )و
  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.    
 .              
-                    dnc ask for inspooo. we take copying our ponies (mainly ocs) very seriously at times   
-.              
+                    dnc ask for inspooo please
+                    .              
                                                      .              
                 we disconnect alot pls be patient with us and our grandpa device *  ☁️   
 .              
