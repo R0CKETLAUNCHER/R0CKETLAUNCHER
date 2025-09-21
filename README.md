@@ -1,4 +1,7 @@
-# ٩(ˊᗜˋ )و
+# ٩(ˊᗜˋ )و<img width="1457" height="635" alt="_com apple Pasteboard L3FSAh" src="https://github.com/user-attachments/assets/1b15ee12-1839-4446-bd1e-a521a15397af" />
+
+
+
  ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀.    
 .              
                     dnc ask for inspooo.
