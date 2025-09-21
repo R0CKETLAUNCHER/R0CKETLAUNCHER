@@ -20,7 +20,7 @@
                                                   
                               ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-<img width="540" height="468" alt="IMG_1394" src="https://github.com/user-attachments/assets/565680a5-3df3-4374-8b77-afd4e0ae9c14" />
+
 
                 
     
