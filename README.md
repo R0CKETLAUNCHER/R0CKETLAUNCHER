@@ -1,5 +1,6 @@
 # ٩(ˊᗜˋ )و
-![IMG_1676](https://github.com/user-attachments/assets/678bd437-8288-42b3-b4c4-32bf238bc5cf)
+
+<img width="884" height="399" alt="IMG_1678" src="https://github.com/user-attachments/assets/e0ecf003-6aa2-42e8-acb0-54137fcd9adb" />
 
 
 
