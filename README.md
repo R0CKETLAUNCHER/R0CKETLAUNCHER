@@ -1,4 +1,6 @@
-# ٩(ˊᗜˋ )و<img width="1457" height="635" alt="_com apple Pasteboard L3FSAh" src="https://github.com/user-attachments/assets/1b15ee12-1839-4446-bd1e-a521a15397af" />
+# ٩(ˊᗜˋ )و
+![IMG_1676](https://github.com/user-attachments/assets/678bd437-8288-42b3-b4c4-32bf238bc5cf)
+
 
 
 
