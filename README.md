@@ -1,6 +1,6 @@
 eng/arabic ( arabizi )
 
-## WE BLOCK VERY FREELY
+## WE BLOCK / HIDE VERY FREELY
 dni proshippers/darkshippers, people who make r*pe jokes ,illumina phighting, people who go out of their way to make fun of cd/td people adn stuff like that basic criteria ya . suggestive jokes are tolerable but keep them at a minimum especially if we're complete strangers <img width="250" height="250" alt="IMG_1994" src="https://github.com/user-attachments/assets/a9ae899c-8383-49fc-b16c-fc2a1fddbe18" />
 
 
