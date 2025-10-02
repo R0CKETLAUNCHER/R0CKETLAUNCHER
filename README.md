@@ -10,6 +10,8 @@ dni proshippers/darkshippers, people who make r*pe jokes ,illumina phighting, pe
  ![IMG_5198](https://github.com/user-attachments/assets/df5b8697-ce23-41a2-8382-ca50cada12cf)
 ![image](https://github.com/user-attachments/assets/be2979c7-5f6f-4296-8d65-a2b50ef3f82f)
 
+<img width="1872" height="300" alt="image" src="https://github.com/user-attachments/assets/d5f26632-c649-4d87-8da8-f119cc1f2a64" />
+
 
 
 ## --
