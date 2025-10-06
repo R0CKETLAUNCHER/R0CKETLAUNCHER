@@ -17,7 +17,14 @@ this is a big fat wip  ignore this
 ```
 studying for midterms , we'll probably respond pretty late
 ```
-<br>
+<p align="center">
+ if you are or tolerate anything listed on 
+ 
+  
+ [here]([docs/CONTRIBUTING.md](https://rentry.co/eclipse_dni)) please dni thank you </p>
+
+ 
+
 
 
 
