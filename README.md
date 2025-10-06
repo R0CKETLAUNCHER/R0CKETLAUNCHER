@@ -6,7 +6,8 @@
 
 
 
-<p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/04eb823c-7f05-4258-90fa-447d43daa8c4" />
+<p align="center"> 
+<img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/2e14015a-50d4-422a-8376-4c5aec7af038" />
 
  </p>
 
@@ -34,7 +35,8 @@ studying for midterms , we'll probably respond pretty late
 
 <p align="center"> ok thats it we think sign our ata NOW </p> <br>
 
- <p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/cca6aa9d-b45e-48e3-8275-8240f644b1cd" /> </p>
+ <p align="center"> <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/82a057c3-79ea-43be-910a-3f8b680c58ad" />
+</p>
  
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/1890e49d-dcaf-4408-9ee4-2124de259fa6" />
 
