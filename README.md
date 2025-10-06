@@ -4,6 +4,11 @@
 <p align="center"> hihihiii !! we're Baz <sub> ooka </sub>  </p>
 <p align="center"> english/arabic </p>
 
+
+<p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/0560de51-78c4-4b2a-9a04-1eb80932c9b8" />
+ </p>
+
+
 <br>    <p align="center">
  you can usually spot us near the sign somewhere near bakery , usually with friends . we're offtab most of the time if we're there , cudz and interacting <sup> through whispers </sup>  is a-ok! especially if we're alone
 </p>  <br>
