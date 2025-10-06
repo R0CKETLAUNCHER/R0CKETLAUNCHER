@@ -1,7 +1,15 @@
 ## 
 <br>    <p align="center">
-  offtab most of the time  ,  cud and interact freely ! `` #f03c15 ``
+ you can usually spot us near the sign somewhere near bakery , usually with friends . we're offtab most of the time if we're there , cudz and interacting <sup> through whispers </sup>  is a-ok! especially if we're alone
 </p>  <br>
+<br>    <p align="center">
+
+</p>  <br>
+
+<p align="center">
+  do NOT copy our skins , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
+</p>
+
 
 
 
