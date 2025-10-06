@@ -17,7 +17,9 @@ this is a big fat wip  ignore this
 ```
 studying for midterms , we'll probably respond pretty late
 ```
-<p align="center">
+<br>
+<br>
+
  if you are or tolerate anything listed on 
  
   
