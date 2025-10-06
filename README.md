@@ -5,7 +5,9 @@
 <p align="center"> english/arabic </p>
 
 
-<p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/0560de51-78c4-4b2a-9a04-1eb80932c9b8" />
+
+<p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/04eb823c-7f05-4258-90fa-447d43daa8c4" />
+
  </p>
 
 
@@ -31,6 +33,8 @@ studying for midterms , we'll probably respond pretty late
 <p align="center"> we are a  BIG fan of phighting , hollowknight , pressure , deltarune/undertale and ultrakill we have these games being injected into our blood on a daily basis </p> <br>
 
 <p align="center"> ok thats it we think sign our ata NOW </p> <br>
+
+ <p align="center"> <img width="400" height="65" alt="image" src="https://github.com/user-attachments/assets/cca6aa9d-b45e-48e3-8275-8240f644b1cd" /> </p>
  
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/1890e49d-dcaf-4408-9ee4-2124de259fa6" />
 
