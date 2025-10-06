@@ -8,7 +8,13 @@
 
 <p align="center">
   do NOT copy our skins , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
-</p>
+</p>  <br>
+
+ currently:   <br>
+                                                  
+```
+studying for midterms , we'll probably respond pretty late 
+```
 
 
 
