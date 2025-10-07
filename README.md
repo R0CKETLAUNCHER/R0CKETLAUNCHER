@@ -1,9 +1,4 @@
 ##
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31j6rjiclg4vbmopbl7mx6ibx7om&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false">
-  </a>
-</p>
 
 ## <p align="center"> ^_^ </p>
 
@@ -43,6 +38,11 @@ studying for midterms , we'll probably respond pretty late
 
  <p align="center"> <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/82a057c3-79ea-43be-910a-3f8b680c58ad" />
 </p>
- 
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/1890e49d-dcaf-4408-9ee4-2124de259fa6" />
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31j6rjiclg4vbmopbl7mx6ibx7om&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false">
+  </a>
+</p>
+
+ 
