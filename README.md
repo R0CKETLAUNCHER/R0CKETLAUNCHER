@@ -20,7 +20,7 @@
 </p>  <br>
 
 <p align="center">
-  do NOT copy our skins , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
+  do NOT copy our skins nore put them on pintrest , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
 </p>  <br>
 
  currently:   <br>
