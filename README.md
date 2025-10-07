@@ -37,8 +37,9 @@ studying for midterms , we'll probably respond pretty late
 
 <p align="center"> ok thats it we think sign our ata NOW </p> <br>
 
- <p align="center">  we're hiding people with silksong cosplays for 15 for now , sorry we're just trying to avoid spoilers as much as possible ^_^;; </p>
+> <p align="center">  we're hiding people with silksong cosplays for 15mins/24hrs for now , sorry we're just trying to avoid spoilers as much as possible ^_^;; </p>
  
+
  <p align="center"> <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/82a057c3-79ea-43be-910a-3f8b680c58ad" />
 </p>
 
