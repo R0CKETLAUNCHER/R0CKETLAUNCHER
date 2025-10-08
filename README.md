@@ -35,9 +35,12 @@ studying for midterms , we'll probably respond pretty late
 
 <p align="center"> we are a  BIG fan of phighting , hollowknight , pressure , deltarune/undertale and ultrakill we have these games being injected into our blood on a daily basis </p> <br>
 
-<p align="center"> ok thats it we think sign our ata NOW </p> <br>
 
 > <p align="center">  we're hiding people with silksong cosplays for 15mins/24hrs for now , sorry we're just trying to avoid spoilers as much as possible ^_^;; </p>
+<br>
+<br>
+ <p align="center"> ok thats it we think sign our ata NOW </p> <br>
+
  
 <br>
 <br>
