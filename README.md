@@ -28,7 +28,7 @@
  currently:   <br>
                                                   
 ```
-studying for midterms , we'll probably respond pretty late
+studying for midterms , we'll probably respond pretty late ( one more exam weball ) 
 ```
 <br>
 <br>
