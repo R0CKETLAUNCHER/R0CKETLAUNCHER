@@ -28,7 +28,7 @@
  currently:   <br>
                                                   
 ```
-studying for midterms , we'll probably respond pretty late ( one more exam weball ) 
+wehave a holiday from school expect us to be online 24/7
 ```
 <br>
 <br>
