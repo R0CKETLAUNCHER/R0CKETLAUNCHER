@@ -5,9 +5,11 @@
 
 <p align="center"> hihihiii !! we're Baz <sub> ooka </sub>  </p>
 <p align="center"> english/arabic </p>
+<p align="center"> WELOVE STARGAZERROCKET AND EGOBWORDER AND EGOGAZER ,,ok ? ok!! </p>
 
-
-
+<br>
+<br>
+<br>
 <p align="center"> 
 <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/2e14015a-50d4-422a-8376-4c5aec7af038" />
 
