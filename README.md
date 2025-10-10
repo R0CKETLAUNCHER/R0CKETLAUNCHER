@@ -27,6 +27,10 @@
   do NOT copy our skins nor put them on pintrest , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
 </p>  <br>
 
+<p align="center">
+  also small note but most robloxmyth cosplays we have arent forsaken unless stared ok,,</sup>
+</p>  <br>
+
  currently:   <br>
                                                   
 ```
