@@ -34,7 +34,7 @@
  currently:   <br>
                                                   
 ```
-lACKADAISY IS PICKED UP BY GLITCH NEVERKILL YOURSELF
+lACKADAISY IS PICKED UP BY GLITCH NEVERKILL YOURSELF , playingf with our beautiufl little medkit
 ```
 <br>
 <br>
