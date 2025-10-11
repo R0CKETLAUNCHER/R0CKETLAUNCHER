@@ -34,7 +34,7 @@
  currently:   <br>
                                                   
 ```
-wehave a holiday from school expect us to be online 24/7
+lACKADAISY IS PICKED UP BY GLITCH NEVERKILL YOURSELF
 ```
 <br>
 <br>
