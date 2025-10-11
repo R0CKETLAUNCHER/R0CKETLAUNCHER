@@ -28,7 +28,7 @@
 </p>  <br>
 
 <p align="center">
-  also small note but most robloxmyth cosplays we have arent forsaken unless stared ok,,</sup>
+  also small note but most robloxmyth cosplays we have arent forsaken unless stated 
 </p>  <br>
 
  currently:   <br>
