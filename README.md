@@ -1,7 +1,7 @@
 ##
 <img width="2160" height="637" alt="image" src="https://github.com/user-attachments/assets/1309f894-5cba-4dbf-ab28-cdc4d5d2a443" />
 
-## <p align="center"> ^_^ </p>
+## <p align="center">  (❁´◡`❁) </p>
 
 <p align="center"> hihihiii !! we're Baz <sub> ooka </sub>  </p>
 <p align="center"> english/arabic </p>
