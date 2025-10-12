@@ -5,7 +5,7 @@
 
 <p align="center"> hihihiii !! we're Baz <sub> ooka </sub>  </p>
 <p align="center"> english/arabic </p>
-<p align="center"> WELOVE STARGAZERROCKET AND EGOBWORDER AND EGOGAZER ,,ok ? ok!! </p>
+<p align="center"> WELOVE STARGAZERROCKET AND EGOBWORDER AND EGOGAZER  </p>
 
 <br>
 <br>
