@@ -50,14 +50,16 @@ iwEXTREMEcuf for now  ·_·;;
  
 <br>
 <br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
  <p align="center"> <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/82a057c3-79ea-43be-910a-3f8b680c58ad" />
 </p>
 <br>
 <br>
-
-
-![image](https://github.com/user-attachments/assets/fda4b16c-c087-4bd2-a90c-c33e331af7db)
 
 
 <br>
@@ -67,5 +69,15 @@ iwEXTREMEcuf for now  ·_·;;
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31j6rjiclg4vbmopbl7mx6ibx7om&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false">
   </a>
 </p>
+
+
+> ditf spoilers v
+<br>
+<br>
+<br>
+
+
+![image](https://github.com/user-attachments/assets/fda4b16c-c087-4bd2-a90c-c33e331af7db)
+
 
  
