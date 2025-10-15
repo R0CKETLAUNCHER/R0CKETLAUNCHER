@@ -17,7 +17,7 @@
 
 
 <br>    <p align="center">
- you can usually spot us near the sign somewhere near bakery , usually with friends . we're offtab most of the time , cudz and interacting <sup> through whispers </sup>  is a-ok! especially if we're alone
+ you can usually spot us near the sign somewhere near bakery , usually with friends . we're offtab most of the time , cudz and interacting <sup>through whispers , we have pub chat off normally</sup>  is a-ok! especially if we're alone
 </p>  <br>
 <br>    <p align="center">
 
