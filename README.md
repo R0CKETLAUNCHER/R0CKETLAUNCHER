@@ -3,7 +3,7 @@
 
 ## <p align="center">  (❁´◡`❁) </p>
 
-<p align="center"> hihihiii !! we're Baz <sub> ooka </sub>  </p>
+<p align="center"> hihihiii !! we're Baz <sub> ooka </sub> / smiler </p>
 <p align="center"> english/arabic </p>
 <p align="center"> WELOVE STARGAZERROCKET AND EGOBWORDER AND EGOGAZER  </p>
 
@@ -78,9 +78,6 @@ iwEXTREMEcuf for now  ·_·;;
 ![image](https://github.com/user-attachments/assets/fda4b16c-c087-4bd2-a90c-c33e331af7db)
 
 
-<br>
-<br>
-<p align="center"> illumina kisser] whispers: your illumina looks goonable </p>
-<p align="center">  ifany weirdos interact finn will lick them aggressively/neg </p>
+
 
  
