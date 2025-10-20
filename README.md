@@ -32,7 +32,7 @@
  currently:   <br>
                                                   
 ```
-busy playing ultrakill and eating the nastiest burger while doing it
+busy playing minecraft and eating the nastiest burger while doing it
 ```
 <br>
 <br>
