@@ -78,6 +78,17 @@ busy playing minecraft and eating the nastiest burger while doing it
 ![image](https://github.com/user-attachments/assets/fda4b16c-c087-4bd2-a90c-c33e331af7db)
 
 
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
+our son we need to show you all
+![image](https://github.com/user-attachments/assets/288c108a-3726-466a-b232-f3242719c60f)
+
+
+ok rhats actuallt it
 
  
