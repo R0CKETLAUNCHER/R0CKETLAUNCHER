@@ -32,7 +32,7 @@
  currently:   <br>
                                                   
 ```
-busy playing minecraft and eating the nastiest burger while doing it
+studying for 3 different batches of exams at the same time  we areDYING
 ```
 <br>
 <br>
