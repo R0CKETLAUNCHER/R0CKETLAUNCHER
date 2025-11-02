@@ -5,7 +5,7 @@
 
 <p align="center"> hihihiii !! we're Baz <sub> ooka </sub> / smiler </p>
 <p align="center"> english/arabic </p>
-<p align="center"> WELOVE ROCKER AND SKQREBOARD AND SWORDAND HYPERLASEE AN  </p>
+<p align="center"> WELOVE ROCKER AND SKQREBOARD AND SWORDAND HYPERLASEE AND WE HATE DARKHEART </p>
 
 <br>
 <br>
