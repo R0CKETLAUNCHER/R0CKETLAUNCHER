@@ -1,7 +1,10 @@
  <p align="center"> ☁️ </p>
 
 ##
-<img width="2160" height="637" alt="image" src="https://github.com/user-attachments/assets/1309f894-5cba-4dbf-ab28-cdc4d5d2a443" />
+<img width="2160" height="1620" alt="image" src="https://github.com/user-attachments/assets/d21b1eb7-9b4f-4dd0-879f-21e091c1ec99" />
+
+
+
 
 ## <p align="center">  (❁´◡`❁) </p>
 <br>
