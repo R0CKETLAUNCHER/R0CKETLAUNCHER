@@ -53,10 +53,11 @@ studying for 3 different batches of exams at the same time  we areDYING
 > <p align="center">  we're hiding people with silksong cosplays for 15mins/24hrs for now , sorry we're just trying to avoid spoilers as much as possible ^_^;; </p>
 <br>
 <br>
- <p align="center"> ok thats it we think sign our ata NOW </p> <br>
+<p align="center">
  
-☁️ [atabook](https://sm1lerw0w.atabook.org) ☁️ [main strawpage](https://sm1lerw0w.straw.page/) [ponytown strawpage](https://expendabl3.straw.page/) ☁️ [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER) ☁️
+☁️ [atabook](https://sm1lerw0w.atabook.org) ☁️ [main strawpage](https://sm1lerw0w.straw.page/) ☁️ [ponytown strawpage](https://expendabl3.straw.page/) ☁️ [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER) ☁️
 
+</p>
  
 <br>
 <br>
