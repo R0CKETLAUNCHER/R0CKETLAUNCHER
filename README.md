@@ -57,7 +57,7 @@
  currently:   <br>
                                                   
 ```
-studying for 3 different batches of exams at the same time  we areDYING
+watch us fail our finals  
 ```
 <br>
 <br>
