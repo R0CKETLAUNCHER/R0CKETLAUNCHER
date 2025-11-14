@@ -16,6 +16,12 @@
 <p align="center"> english/arabic </p>
 <br>
 <p align="center"> WELOVE ROCKER AND SKQREBOARD AND SWORDAND HYPERLASEE AND WE HATE DARKHEART </p>
+<br>
+<br>
+<br>
+
+☁️ [atabook](https://sm1lerw0w.atabook.org) ☁️ [main strawpage](https://sm1lerw0w.straw.page/) ☁️ [ponytown strawpage](https://expendabl3.straw.page/) ☁️ [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER) ☁️
+
 
 <br>
 <br>
@@ -55,7 +61,7 @@ studying for 3 different batches of exams at the same time  we areDYING
 <br>
 <p align="center">
  
-☁️ [atabook](https://sm1lerw0w.atabook.org) ☁️ [main strawpage](https://sm1lerw0w.straw.page/) ☁️ [ponytown strawpage](https://expendabl3.straw.page/) ☁️ [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER) ☁️
+
 
 </p>
  
