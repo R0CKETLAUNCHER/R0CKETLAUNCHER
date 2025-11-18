@@ -57,7 +57,8 @@
  currently:   <br>
                                                   
 ```
-watch us fail our finals  
+semi hiatus
+
 ```
 <br>
 <br>
