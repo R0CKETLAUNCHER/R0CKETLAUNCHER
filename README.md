@@ -1,118 +1,82 @@
- <p align="center"> ☁️ </p>
-<br>
-<br>
-
-<img width="1200" height="120" alt="image" src="https://github.com/user-attachments/assets/5af26b3c-8f1e-4bbe-9136-777ac2177e40" />
+<img width="1400" height="1086" alt="IMG_3180" src="https://github.com/user-attachments/assets/5d9a1302-3849-4709-bd4c-3094d601a025" />
 
 
- 
+# _KABOOM_ 
+<br> 
+<br> 
 
+> <p align="center"> <sup> this might look wobbly on phones ·_·;; </sup>
 
+<br> 
+<br> 
+<br> 
 
-##
-<img width="2160" height="1620" alt="image" src="https://github.com/user-attachments/assets/d21b1eb7-9b4f-4dd0-879f-21e091c1ec99" />
+> <p align="center">   <sup>   it &nbsp; &nbsp; / &nbsp; &nbsp; any </sup>    &nbsp;  &nbsp;  &nbsp;  &nbsp; <img width="92" height="94" alt="PNG image" src="https://github.com/user-attachments/assets/a1b53bf9-2be4-4920-9c78-25557ddf9ee8" />
 
+<br> 
+<br> 
+<br>
+<p align="center">  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/88cd6140-008d-4666-b685-389bff148eb7" /> 
 
-
-
-## <p align="center">  (❁´◡`❁) </p>
-<br>
-<br>
-<br>
-<br>
-<p align="center"> hihihiii !! we're Baz <sub> ooka </sub> / smiler </p>
-<br>
-<p align="center"> english/arabic </p>
-<br>
-<p align="center"> WELOVE ROCKER AND SKQREBOARD AND SWORDAND HYPERLASEE AND WE HATE DARKHEART </p>
-<br>
-<br>
+<br> 
+<br> 
 <br>
 
-☁️ [atabook](https://sm1lerw0w.atabook.org) ☁️ [main strawpage](https://sm1lerw0w.straw.page/) ☁️ [ponytown strawpage](https://expendabl3.straw.page/) ☁️ [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER) ☁️
+> <p align="center"> <sup> you can always spot us near the sign next to bakery or at a mafia with friends &nbsp; &nbsp; , &nbsp; &nbsp; feel free to &nbsp; (whisper to)interact aslong as we dont have any dnis in our name </sup> 
 
+<br> 
+<br> 
+<br> 
+  
+  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=1a3d8a)
+  
+<br> 
+<br> 
+<br> 
 
-<br>
-<br>
-<br>
-<p align="center"> 
-<img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/2e14015a-50d4-422a-8376-4c5aec7af038" />
+<img width="2160" height="637" alt="IMG_2911" src="https://github.com/user-attachments/assets/287d9b7e-979f-46f7-b41d-d6f9ce8bf9f7" />
 
- </p>
-
-
-<br>    <p align="center">
- you can usually spot us near the sign somewhere near bakery or at mafias , usually with friends . we're offtab most of the time , cudz and interacting <sup>through whispers , we have pub chat off normally</sup>  is a-ok! especially if we're alone
-</p>  <br>
-<br>    <p align="center">
-
-</p>  <br>
-
-<p align="center">
-  do NOT copy our skins nor put them on pintrest , inspo is only allowed  <ins>if</ins> you ask us first <sup>by whisps or ata</sup>
-</p>  <br>
+<br> 
+<br> 
+<br> 
+<br> 
 
 
 
- currently:   <br>
-                                                  
-```
-semi hiatus (?) iwec or dni okthanks
+> <p align="center">   <sup>   do not copy our skins &nbsp; &nbsp; , &nbsp; &nbsp; post them on any social nor taking inspo without having permission </sup> 
 
-```
-<br>
-<br>
-
-<p align="center"> we are a  BIG fan of phighting , hollowknight , pressure , deltarune/undertale and ultrakill we have these games being injected into our blood on a daily basis </p> <br>
+<br> 
+<br> 
 
 
-> <p align="center">  we're hiding people with silksong cosplays for 15mins/24hrs for now , sorry we're just trying to avoid spoilers as much as possible ^_^;; </p>
-<br>
-<br>
-<p align="center">
- 
 
 
-</p>
- 
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
 
- <p align="center"> <img width="1080" height="40" alt="image" src="https://github.com/user-attachments/assets/82a057c3-79ea-43be-910a-3f8b680c58ad" />
-</p>
-<br>
-<br>
 
+
+
+<br> 
+<br> 
+<br> 
+<br> 
+
+ &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; 
+&nbsp; &nbsp;   [atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/) 
 
 <br>
-<br>
+<p align="center">  <sup> HOW DO YOU PUT LINKS IN THE CENTRE WITHOUT THEM BEINGNSO WOBBLY </sup> 
+<br> 
+<br> 
+<br> 
+<br> 
+
+  
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31j6rjiclg4vbmopbl7mx6ibx7om&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false">
-  </a>
-</p>
 
 
-> ditf spoilers v
-<br>
-<br>
-<br>
 
 
-![image](https://github.com/user-attachments/assets/fda4b16c-c087-4bd2-a90c-c33e331af7db)
 
-
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-
-
- 
+<img width="1400" height="1086" alt="IMG_3181" src="https://github.com/user-attachments/assets/efaa8628-fa3b-4356-8e0b-63042d1f90d3" />
