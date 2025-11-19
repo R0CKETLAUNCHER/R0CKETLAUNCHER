@@ -22,7 +22,7 @@
 <br> 
 <br>
 
-> <p align="center"> <sup> you can always spot us near the sign next to bakery or at a mafia with friends &nbsp; &nbsp; , &nbsp; &nbsp; feel free to &nbsp; (whisper to)interact aslong as we dont have any dnis in our name </sup> 
+> <p align="center"> <sup> you can always spot us near the sign next to bakery, the smallee roblox area or at a mafia with friends &nbsp; &nbsp; , &nbsp; &nbsp; feel free to &nbsp; (whisper to)interact aslong as we dont have any dnis in our name </sup> 
 
 <br> 
 <br> 
