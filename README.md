@@ -43,7 +43,7 @@
 
 
 
-> <p align="center">   <sup>   do not copy our skins &nbsp; &nbsp; , &nbsp; &nbsp; post them on any social nor taking inspo without having permission </sup> 
+> <p align="center">   <sup>   do not copy our skins &nbsp; &nbsp; nor post them on any social&nbsp; &nbsp; . &nbsp; &nbsp; taking inpo is ok aslong as you ask </sup> 
 
 <br> 
 <br> 
