@@ -20,12 +20,7 @@
 <img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" />
 &nbsp;
 <img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" /> &nbsp;
-<img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" />
-&nbsp;
-<img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" /> &nbsp;
-<img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" />
-&nbsp;
-<img width="65" height="95" alt="IMG_3236" src="https://github.com/user-attachments/assets/beba91d1-76f5-4347-adfb-2c7ffe7a65b2" /> 
+
 <br> 
 <br> 
 <br>
