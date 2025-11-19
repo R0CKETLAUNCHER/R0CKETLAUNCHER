@@ -5,7 +5,7 @@
 <br> 
 <br> 
 
-> <p align="center"> <sup> this might look wobbly on phones ·_·;; </sup>
+> <p align="center"> <sup> this might look weird on phones ·_·;; </sup>
 
 <br> 
 <br> 
