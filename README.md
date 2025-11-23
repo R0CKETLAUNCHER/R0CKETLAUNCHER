@@ -90,7 +90,7 @@
 <br> 
 <br>
   
-> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, stayesmp, sfawtde and pressure fans hmu 👀  </sup> 
+> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, sfawtde and pressure fans hmu 👀  </sup> 
 <br> 
 <br> 
 <br> 
