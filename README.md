@@ -50,7 +50,9 @@
 <br> 
 <br> 
   
-  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp;  &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=1a3d8a)
+  <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=1a3d8a)
   
 <br> 
 <br> 
@@ -86,8 +88,6 @@
 
 [atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/) 
 
-<br>
-<p align="center">  <sup> HOW DO YOU PUT LINKS IN THE CENTRE WITHOUT THEM BEINGNSO WOBBLY </sup> 
 <br> 
 <br>
   
