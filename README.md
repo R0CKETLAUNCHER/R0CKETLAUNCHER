@@ -91,7 +91,7 @@
 <br> 
 <br>
   
-> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, sfawtde and pressure fans hmu 👀  </sup> 
+> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀  </sup> 
 <br> 
 <br> 
 <br> 
