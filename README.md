@@ -1,7 +1,7 @@
 <img width="1400" height="1086" alt="IMG_3180" src="https://github.com/user-attachments/assets/5d9a1302-3849-4709-bd4c-3094d601a025" />
 
 
-## _&nbsp; practice makes purpose_ 
+## _&nbsp; practice makes purpose_ &nbsp; &nbsp; &nbsp; ᯓ
 <br> 
 <br> 
 <br> 
