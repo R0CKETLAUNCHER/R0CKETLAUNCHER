@@ -86,7 +86,16 @@
 <br> 
 <br> 
 <br> 
-
+<div align="center">
+  
+![image](https://github.com/user-attachments/assets/01727e0f-07e2-471d-81f8-edf0b6bf325a) &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://github.com/user-attachments/assets/1ee05a35-f02f-453f-b907-c9638dd3f391)
+<br> 
+<br> 
+<br> 
+<br> 
+<br> 
+<br> 
+  
 <div align="center">
 
 [atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [tree👀👀🎄🎄👀](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
