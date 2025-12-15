@@ -74,6 +74,23 @@
 [atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; 
 
 <br> 
+<br>
+
+<br> 
+<br>
+
+![image](https://github.com/user-attachments/assets/01727e0f-07e2-471d-81f8-edf0b6bf325a) &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://github.com/user-attachments/assets/1ee05a35-f02f-453f-b907-c9638dd3f391) &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://github.com/user-attachments/assets/2cd01b75-ccd2-429a-931b-682ba333a99c) &nbsp; &nbsp; &nbsp; &nbsp;
+![image](https://github.com/user-attachments/assets/b8a04c74-0708-45c6-8946-d587fa92a7b7)
+
+&nbsp; &nbsp; &nbsp; &nbsp;
+
+
+<br> 
+<br>
+  
+> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀  </sup> 
+
+<br> 
 <br> 
 <img width="2160" height="637" alt="IMG_2911" src="https://github.com/user-attachments/assets/287d9b7e-979f-46f7-b41d-d6f9ce8bf9f7" />
 
@@ -102,16 +119,6 @@
 <br> 
 <div align="center">
   
-![image](https://github.com/user-attachments/assets/01727e0f-07e2-471d-81f8-edf0b6bf325a) &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://github.com/user-attachments/assets/1ee05a35-f02f-453f-b907-c9638dd3f391) &nbsp; &nbsp; &nbsp; &nbsp; ![image](https://github.com/user-attachments/assets/2cd01b75-ccd2-429a-931b-682ba333a99c) &nbsp; &nbsp; &nbsp; &nbsp;
-![image](https://github.com/user-attachments/assets/b8a04c74-0708-45c6-8946-d587fa92a7b7)
-
-&nbsp; &nbsp; &nbsp; &nbsp;
-
-
-<br> 
-<br>
-  
-> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀  </sup> 
 <br> 
 <br> 
 <br> 
