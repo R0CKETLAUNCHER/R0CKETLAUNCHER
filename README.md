@@ -1,7 +1,7 @@
 <img width="1400" height="1086" alt="IMG_3180" src="https://github.com/user-attachments/assets/5d9a1302-3849-4709-bd4c-3094d601a025" />
 
 
-### &nbsp; [oooo you wanna sign our tree ooooo ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
+### &nbsp; [oooo you wanna sign our tree so bad ooooo ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
 <br> 
 <br> 
 <br> 
@@ -29,12 +29,7 @@
 <br>
 <br> 
 
-  
-> <p align="center"> <sup> this might look weird on phones ·_·;; </sup>
 
-<br> 
-<br> 
-<br> 
 
 > <p align="center">   <sup>   it &nbsp; &nbsp; / &nbsp; &nbsp; any </sup>    &nbsp;  &nbsp;  &nbsp;  &nbsp; <img width="92" height="94" alt="PNG image" src="https://github.com/user-attachments/assets/a1b53bf9-2be4-4920-9c78-25557ddf9ee8" />
 
