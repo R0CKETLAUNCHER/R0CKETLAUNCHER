@@ -87,7 +87,11 @@
 
 <br> 
 <br>
-  
+
+> <p align="center">   <sup>   do not copy our skins &nbsp; &nbsp; nor post them on any social&nbsp; &nbsp; . &nbsp; &nbsp; taking inspo is ok aslong as you ask </sup>  
+
+   <br>
+   
 > <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀  </sup> 
 
 <br> 
@@ -95,13 +99,6 @@
 <img width="2160" height="637" alt="IMG_2911" src="https://github.com/user-attachments/assets/287d9b7e-979f-46f7-b41d-d6f9ce8bf9f7" />
 
 <br> 
-<br> 
-<br> 
-<br> 
-
-
-
-> <p align="center">   <sup>   do not copy our skins &nbsp; &nbsp; nor post them on any social&nbsp; &nbsp; . &nbsp; &nbsp; taking inspo is ok aslong as you ask </sup> 
 
 <br> 
 <br> 
@@ -113,12 +110,7 @@
 
 
 
-<br> 
-<br> 
-<br> 
-<br> 
-<div align="center">
-  
+
 <br> 
 <br> 
 <br> 
