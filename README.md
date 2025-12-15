@@ -67,7 +67,12 @@
 ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=1a3d8a)
   
 <br> 
-<br> 
+<br>
+
+<div align="center">
+
+[atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; 
+
 <br> 
 <br> 
 <img width="2160" height="637" alt="IMG_2911" src="https://github.com/user-attachments/assets/287d9b7e-979f-46f7-b41d-d6f9ce8bf9f7" />
@@ -102,14 +107,6 @@
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
-<br> 
-<br> 
-<br> 
-<br> 
-  
-<div align="center">
-
-[atabook](https://sm1lerw0w.atabook.org) &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  &nbsp;  &nbsp; &nbsp; · &nbsp;  &nbsp; &nbsp; 
 
 <br> 
 <br>
