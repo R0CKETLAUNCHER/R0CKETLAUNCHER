@@ -1,6 +1,4 @@
 
-<br> 
-<br> 
 
 <div align="center">  
   
@@ -132,12 +130,4 @@
 <br> 
 <br> 
 <br>
-<br> 
-
-  
-
-
-
-
-
-<img width="1400" height="1086" alt="IMG_3181" src="https://github.com/user-attachments/assets/efaa8628-fa3b-4356-8e0b-63042d1f90d3" />
+<br>
