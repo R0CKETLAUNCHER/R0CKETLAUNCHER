@@ -1,4 +1,4 @@
-> <p align="center"> <sup> it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any </sup> </p>
+ <p align="center"> <sup> ${\textsf{\color{#e75252}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
 <br>
 <br>
 
@@ -24,4 +24,4 @@
 <br>
 <br>
 
-> <p align="center">   <sup>   phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀  </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#e75252} phighting, hollowknight, orison, ultrakill, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
