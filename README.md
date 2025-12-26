@@ -4,7 +4,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=3a81a3)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=6acec7)
 <div align="center">
   
 ### [tree ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
