@@ -1,10 +1,10 @@
-<p align="center"> <sup> ${\textsf{\color{#6acec7}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
+<p align="center"> <sup> ${\textsf{\color{#244757}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
 <br>
 <br>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=6acec7)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=08222a)
 <div align="center">
   
 ### [tree ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
