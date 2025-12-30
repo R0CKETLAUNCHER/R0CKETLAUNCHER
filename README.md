@@ -4,13 +4,13 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=08222a)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=035771)
 <div align="center">
   
 ### [tree ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
-<sup> ${\textsf{\color{#3a81a3} thank you for all the messages! they were really sweet🥹.pos }}$
+<sup> ${\textsf{\color{#154461} thank you for all the messages! they were really sweet🥹.pos }}$
 <br>
-${\textsf{\color{#3a81a3} we didNOT expect the messages to be thatnice ;; }}$ </sup>
+${\textsf{\color{#1d5374} we didNOT expect the messages to be thatnice ;; }}$ </sup>
 
 
 <div align="center">
@@ -28,6 +28,6 @@ ${\textsf{\color{#3a81a3} we didNOT expect the messages to be thatnice ;; }}$ </
 <br>
 <br>
 
-> <p align="center">   <sup>  ${\textsf{\color{#6acec7} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#112c3c} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
 
 ![image](https://github.com/user-attachments/assets/48172f01-c399-42a4-8e11-e850e2137161)
