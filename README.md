@@ -7,12 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=035771)
 <div align="center">
   
-### [tree ](https://colormytree.me/2025/01KBC8YSKA8SVJSCZRSE6F18WG)
-<sup> ${\textsf{\color{#154461} thank you for all the messages! they were really sweet🥹.pos }}$
-<br>
-${\textsf{\color{#1d5374} we didNOT expect the messages to be thatnice ;; }}$ </sup>
-
-
+### [palistine ](https://arab.org/click-to-help/palestine/)
 <div align="center">
   
 #### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
