@@ -1,10 +1,10 @@
-<p align="center"> <sup> ${\textsf{\color{#244757}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
+<p align="center"> <sup> ${\textsf{\color{#e66659}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
 <br>
 <br>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=035771)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=8fba5c)
 <div align="center">
   
 ### [palistine ](https://arab.org/click-to-help/palestine/)
@@ -23,7 +23,7 @@
 <br>
 <br>
 
-> <p align="center">   <sup>  ${\textsf{\color{#112c3c} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#e66659} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
 
 <img width="918" height="801" alt="image" src="https://github.com/user-attachments/assets/3aa3a113-0eb4-45bc-9786-d3333eb9e0f4" />
 
