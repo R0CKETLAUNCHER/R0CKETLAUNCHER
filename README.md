@@ -15,10 +15,9 @@
 <br>
 <br>
 
+<img width="695" height="700" alt="image" src="https://github.com/user-attachments/assets/34ae9cc2-bb9c-443b-b72d-e428397b5293" />
 
 
-
-![image](https://github.com/user-attachments/assets/310be91d-94e2-4b91-801c-384d760ae283)
 
 <br>
 <br>
