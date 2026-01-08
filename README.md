@@ -1,6 +1,5 @@
 <p align="center"> <sup> ${\textsf{\color{#bd1302}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
 <br>
-<br>
 
 <div align="center">
   
