@@ -13,7 +13,6 @@
 #### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
 
 <br>
-<br>
 
 <img width="695" height="700" alt="image" src="https://github.com/user-attachments/assets/34ae9cc2-bb9c-443b-b72d-e428397b5293" />
 
