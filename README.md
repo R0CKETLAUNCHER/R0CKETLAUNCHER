@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=bd1302)
 <div align="center">
   
-### [palistine ](https://arab.org/click-to-help/palestine/)
+### [palestine ](https://arab.org/click-to-help/palestine/)
 <div align="center">
   
 #### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
