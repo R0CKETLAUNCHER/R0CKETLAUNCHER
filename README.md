@@ -22,5 +22,6 @@
 
 > <p align="center">   <sup>  ${\textsf{\color{#bd1302} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
 
-<img width="918" height="801" alt="image" src="https://github.com/user-attachments/assets/3aa3a113-0eb4-45bc-9786-d3333eb9e0f4" />
+
+![image](https://github.com/user-attachments/assets/8f1b799f-1719-4294-8d42-7feeb10c7ca8)
 
