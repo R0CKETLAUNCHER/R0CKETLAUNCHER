@@ -1,9 +1,9 @@
-<p align="center"> <sup> ${\textsf{\color{#bd1302}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
+<p align="center"> <sup> ${\textsf{\color{#ed8378}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; any }}$ </sup> </p>
 <br>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=bd1302)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ed8378)
 <div align="center">
   
 ### [palestine ](https://arab.org/click-to-help/palestine/)
@@ -13,14 +13,17 @@
 
 <br>
 
-<img width="695" height="700" alt="image" src="https://github.com/user-attachments/assets/34ae9cc2-bb9c-443b-b72d-e428397b5293" />
+<img width="1295" height="1505" alt="image" src="https://github.com/user-attachments/assets/41a6279c-3e1e-497b-978d-f7203f8c02eb" />
+
+
+
 
 
 
 <br>
 <br>
 
-> <p align="center">   <sup>  ${\textsf{\color{#bd1302} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#ed8378} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
 
 
 ![image](https://github.com/user-attachments/assets/8f1b799f-1719-4294-8d42-7feeb10c7ca8)
