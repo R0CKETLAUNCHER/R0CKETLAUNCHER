@@ -3,7 +3,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ed8378)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=da6458)
 <div align="center">
   
 ### [palestine ](https://arab.org/click-to-help/palestine/)
