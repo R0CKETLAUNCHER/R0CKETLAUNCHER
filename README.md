@@ -5,12 +5,12 @@
  
 <br>
 
-<p align="center"> <sup> ${\textsf{\color{#ed837}}}$ </sup> </p>
+<p align="center"> <sup> ${\textsf{\color{#b22a3a}}}$ </sup> </p>
 <br>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=da5244)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=981121)
 <div align="center">
   
 ### [palestine ](https://arab.org/click-to-help/palestine/)
