@@ -19,7 +19,8 @@
 #### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
 
 <br>
-
+<p align="center"> <sup> ${\textsf{\color{#da5244} PLEASE do not copy our ponies, SLIGHT inspo is fine aslong as you ask }}$ </sup> </p>
+ 
 <img width="1295" height="1505" alt="image" src="https://github.com/user-attachments/assets/41a6279c-3e1e-497b-978d-f7203f8c02eb" />
 
 
