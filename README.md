@@ -15,7 +15,7 @@
 
 <br>
   
- <sup>  ${\textsf{\color{#ab1000}thread of links to help the countries being bombed in the middle east }}$   </sup>
+ <sup>  ${\textsf{\color{#ab1000}thread of links to help the countries on strike in the middle east }}$   </sup>
   
   [click here ](https://arab.org/click-to-help/palestine/)
 <div align="center">
