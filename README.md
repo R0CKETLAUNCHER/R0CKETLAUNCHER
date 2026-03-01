@@ -12,8 +12,12 @@
   
 ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000)
 <div align="center">
+
+<br>
   
-### [palestine ](https://arab.org/click-to-help/palestine/)
+ <sup>  ${\textsf{\color{#ab1000}thread of links to help the countries being bombed in the middle east }}$   </sup>
+  
+  [click here ](https://arab.org/click-to-help/palestine/)
 <div align="center">
   
 #### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
