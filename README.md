@@ -10,7 +10,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000)
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000&style=flat-square&abbreviated=true)
 <div align="center">
 
 <br>
@@ -39,6 +39,6 @@
 > <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
 
 
-![image](https://github.com/user-attachments/assets/12dba4d6-2666-4e28-872e-d75801f90692)
+ <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6604.gif" width="75" height="75" />
 
 
