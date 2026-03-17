@@ -36,7 +36,7 @@
 <br>
 <br>
 
-> <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp, deltarune, sfawtde and pressure fans hmu 👀 }}$   </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp & deltarune fans hmu 👀 }}$   </sup> 
 
 
  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6604.gif" width="75" height="75" />
