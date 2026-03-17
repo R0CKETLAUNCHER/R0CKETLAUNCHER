@@ -5,9 +5,6 @@
  
 <br>
 
-<p align="center"> <sup> ${\textsf{\color{#ab1000}}}$ </sup> </p>
-<br>
-
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000&style=flat-square&abbreviated=true)
@@ -36,7 +33,7 @@
 <br>
 <br>
 
-> <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp & deltarune fans hmu 👀 }}$   </sup> 
+> <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp and deltarune fans hmu 👀 }}$   </sup> 
 
 
  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6604.gif" width="75" height="75" />
