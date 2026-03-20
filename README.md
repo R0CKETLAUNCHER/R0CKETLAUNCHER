@@ -34,7 +34,7 @@
 <br>
 
 > <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp and deltarune fans hmu 👀 }}$   </sup> 
-
+<br> 
 
 <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6606.gif" width="75" height="75" />
 
