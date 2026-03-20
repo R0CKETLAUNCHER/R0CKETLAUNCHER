@@ -36,7 +36,10 @@
 > <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp and deltarune fans hmu 👀 }}$   </sup> 
 <br> 
 <p align="center">   <sup>  ${\textsf{\color{#ab1000} do not waste your sweet 15 bucks on silksong, it is a medevil torture method disguised as a cheap indie videogame }}$   </sup>  
+  
   <br>
+  <br>
+  
 <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6606.gif" width="75" height="75" />
 
 
