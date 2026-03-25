@@ -17,7 +17,7 @@
   [click here ](https://x.com/1975ispunk/status/2027783087896097257)
 <div align="center">
   
-#### <sup> [atabook](https://sm1lerw0w.atabook.org)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
+#### <sup> [atabook](https://static.wikitide.net/phightingwiki/4/47/Placeholder.png)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
 
 <br>
 <p align="center"> <sup> ${\textsf{\color{#ab1000} PLEASE do not copy our ponies, SLIGHT inspo is fine aslong as you ask }}$ </sup> </p>
