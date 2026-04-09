@@ -20,7 +20,7 @@
 #### <sup> [atabook](https://static.wikitide.net/phightingwiki/4/47/Placeholder.png)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
 
 <br>
-<p align="center"> <sup> ${\textsf{\color{#ab1000} PLEASE do not copy our ponies, SLIGHT inspo is fine aslong as you ask }}$ </sup> </p>
+<p align="center"> <sup> ${\textsf{\color{#ab1000} PLEASE do not copy my ponies, SLIGHT inspo is fine aslong as you ask }}$ </sup> </p>
  
 <img width="795" height="900" alt="image" src="https://github.com/user-attachments/assets/7b1f6056-0333-4a7d-bc89-909e36872ad4" />
 
