@@ -1,47 +1,16 @@
-<p align="center"> ${\textsf{\color{#ab1000}it &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; its }}$  
 
-  
-<p align="center"> <sup> ${\textsf{\color{#ab1000} عربية &nbsp;&nbsp;&nbsp; / &nbsp;&nbsp;&nbsp; eng }}$ </sup> </p>
+
+<div align="center"> 
+
+> <sup> warning, this is made with darkmode in mind <sup>
+
+##
+
+<br>
  
-<br>
-
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000&style=flat-square&abbreviated=true)
-<div align="center">
+ ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=ab1000&style=flat-square&abbreviated=true)
 
 <br>
-  
- <sup>  ${\textsf{\color{#ab1000}thread of links and resources to help the countries on strike }}$   </sup>
-  
-  [click here ](https://x.com/1975ispunk/status/2027783087896097257)
-<div align="center">
-  
-#### <sup> [atabook](https://static.wikitide.net/phightingwiki/4/47/Placeholder.png)  &nbsp;  &nbsp; &nbsp; [pronouns page](https://en.pronouns.page/@R0CKETLAUNCHER)   &nbsp;  &nbsp; &nbsp; [ponytown strawpage](https://expendabl3.straw.page/)  </sup>
 
-<br>
-<p align="center"> <sup> ${\textsf{\color{#ab1000} PLEASE do not copy my ponies, SLIGHT inspo is fine aslong as you ask }}$ </sup> </p>
- 
-<img width="795" height="900" alt="image" src="https://github.com/user-attachments/assets/7b1f6056-0333-4a7d-bc89-909e36872ad4" />
-
-
-
-
-
-
-
-<br>
-<br>
-
-> <p align="center">   <sup>  ${\textsf{\color{#ab1000} phighting, hollowknight, orison, statesmp and deltarune fans hmu 👀 }}$   </sup> 
-<br> 
-<p align="center">   <sup>  ${\textsf{\color{#ab1000} do not waste your sweet 15 bucks on silksong, it is a medevil torture method disguised as a cheap indie videogame }}$   </sup>  
-  
-  <br>
-  <br>
-  
-<img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_6606.gif" width="75" height="75" />
-
-
-
-
+<sup>  ${\textsf{\color{#e9eaff} hollowknight and phighting fans hook me up  }}$ </sup>  
+<sup>  ${\textsf{\color{#bfcae6} Im not done with silksong give me like 5 more years }}$ </sup>  
