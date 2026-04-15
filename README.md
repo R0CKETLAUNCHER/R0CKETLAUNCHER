@@ -6,6 +6,9 @@
 
 ##
 
+
+##
+
 <br>
  
  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=999fae&style=flat-square&abbreviated=true&label=VESSELS)
@@ -15,4 +18,16 @@
 <sup>  ${\textsf{\color{#e9eaff} hollowknight, deltaune and phighting hmu  }}$ </sup>  
 <sup>  ${\textsf{\color{#bfcae6} Im not done with silksong give me like 5 more years }}$ </sup>  
 
+> <sup> i'll add links later </sup>
+
 <img width="300" height="300" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7196.gif" />
+
+<br>
+
+<sup>  ${\textsf{\color{#999fae} dont copy nor post my ponies anywhere, ask for insp  }}$ </sup> 
+
+<sup> ${\textsf{\color{#bfcae6} dni if you are/support prship and darkship  }}$ </sup>
+
+##
+
+##
