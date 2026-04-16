@@ -15,7 +15,7 @@
 
 <br>
 
-<sup>  ${\textsf{\color{#e9eaff} hollowknight, deltaune and phighting hmu  }}$ </sup>  
+<sup>  ${\textsf{\color{#e9eaff} hollowknight, deltaune and phighting fans hmu  }}$ </sup>  
 <sup>  ${\textsf{\color{#bfcae6} Im not done with silksong give me like 5 more years }}$ </sup>  
 
 
