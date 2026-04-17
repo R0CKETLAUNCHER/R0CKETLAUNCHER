@@ -27,7 +27,7 @@
 
 <sup>  ${\textsf{\color{#8799c8} dont copy nor post my ponies anywhere, ask for insp  }}$ </sup> 
 
-<sup>  ${\textsf{\color{#9faed5} if it doesnt have any of my gits or my steam (egobworder) attached its not me }}$ </sup> 
+<sup>  ${\textsf{\color{#9faed5} if it doesnt have any of my gits or my steam (egobworder/baz) attached its not me }}$ </sup> 
 
 <sup> ${\textsf{\color{#bfcae6} dni if you are/support proship and darkship  }}$ </sup>
 
