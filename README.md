@@ -21,7 +21,7 @@
 
 <sup> [sign ata](https://pure-vessel.atabook.org/) </sup>
 
-<img width="300" height="300" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7196.gif" />
+<img width="130" height="200" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7541.gif" />
 
 <br>
 
