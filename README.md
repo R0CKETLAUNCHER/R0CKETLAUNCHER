@@ -29,7 +29,7 @@
 
 <sup>  ${\textsf{\color{#8799c8} dont copy nor post my ponies anywhere, ask for insp  }}$ </sup> 
 
-<sup> ${\textsf{\color{#bfcae6} dni if you are/support proship and darkship  }}$ </sup>
+<sup> ${\textsf{\color{#bfcae6} dni if you are/support proship and darkship, i block + hide super duper uper freely  }}$ </sup>
 
 ##
 
