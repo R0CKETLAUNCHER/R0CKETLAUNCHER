@@ -4,14 +4,12 @@
 
 <br>
 <br>
-<br>
-<br>
 
 <img align="right" width="199" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7628.png">
 
 
 
-<br>
+
   <table>
     <tr>
       <td>
