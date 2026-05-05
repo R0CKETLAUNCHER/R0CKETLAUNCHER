@@ -1,3 +1,5 @@
+##
+
 > <p align="center"> <sup> BEST VIEWED ON PC !!! </sup> </p>
 
 <br>
@@ -65,4 +67,4 @@ ${\textsf{\color{#4b81c7} proship, darkship, anticensorship or whatever dni }}$
   
 > <sup> TY JAY FOR INSPO & HELPING ME FIND BORDERS ^_^* </sup>
 
-
+##
