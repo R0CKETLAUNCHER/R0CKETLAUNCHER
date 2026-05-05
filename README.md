@@ -63,6 +63,6 @@ ${\textsf{\color{#4b81c7} proship, darkship, anticensorship or whatever dni }}$
 
 <div align="center"> 
   
-> <sup> TY JAY FOR HELPING ME FIND BORDERS ^_^* </sup>
+> <sup> TY JAY FOR INSPO & HELPING ME FIND BORDERS ^_^* </sup>
 
 
