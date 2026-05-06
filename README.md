@@ -27,7 +27,7 @@
   
  <sup> ${\textsf{\color{#3f6493} hollowknight, deltaune and phighting fans hmu  }}$ </sup>
        <br>
-${\textsf{\color{#3973c8} I havent finished silksong NO SPOILERS ok ? }}$
+${\textsf{\color{#4185dd} I havent finished silksong NO SPOILERS ok ? }}$
        <br>
        
 ##
