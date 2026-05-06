@@ -27,7 +27,7 @@
   
  <sup> ${\textsf{\color{#3f6493} hollowknight, deltaune and phighting fans hmu  }}$ </sup>
        <br>
-${\textsf{\color{#5e89c8} I havent finished silksong NO SPOILERS ok ? }}$
+${\textsf{\color{#3973c8} I havent finished silksong NO SPOILERS ok ? }}$
        <br>
        
 ##
@@ -37,7 +37,7 @@ ${\textsf{\color{#5e89c8} I havent finished silksong NO SPOILERS ok ? }}$
 
 ##
 
-${\textsf{\color{#4b81c7} proship, darkship, anticensorship or whatever dni }}$
+${\textsf{\color{#2f77d3} proship, darkship, anticensorship or whatever dni }}$
 <br>
 <sup> ${\textsf{\color{#254785} theres more but I'd just block you }}$ </sup> 
    <br>
