@@ -23,7 +23,7 @@
    <br>
    <br>
    
-  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=2779c9&style=flat-square&abbreviated=true&label=🌊 )
+  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=2779c9&style=flat-square&abbreviated=true&label=🪼)
   
  <sup> ${\textsf{\color{#3f6493} hollowknight, deltaune and phighting fans hmu  }}$ </sup>
        <br>
