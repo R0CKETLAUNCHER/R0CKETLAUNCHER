@@ -29,7 +29,8 @@
        <br>
 ${\textsf{\color{#4185dd} I havent finished silksong NO SPOILERS ok ? }}$
        <br>
-       
+    <sup>   ${\textsf{\color{#4fa0eb} DO NOT COPY and ask for inspo pls pls pls }}$ </sup>
+       <br>
 ##
 <a href="https://pure-vessel.atabook.org/">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7645.png" alt="atabook link" width="200">
