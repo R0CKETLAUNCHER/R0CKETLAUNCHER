@@ -38,7 +38,7 @@ ${\textsf{\color{#4185dd} I havent finished silksong NO SPOILERS ok ? }}$
 
 ##
 
-${\textsf{\color{#2f77d3} proship, darkship, anticensorship or whatever dni }}$
+${\textsf{\color{#2f77d3} proship, darkship, anticensorship and "dark romance" dni }}$
 <br>
 <sup> ${\textsf{\color{#254785} theres more but I'd just block you }}$ </sup> 
    <br>
