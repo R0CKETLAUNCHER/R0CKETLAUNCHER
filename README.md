@@ -42,7 +42,7 @@ ${\textsf{\color{#4185dd} I havent finished silksong NO SPOILERS ok ? }}$
 
 ##
 
-${\textsf{\color{#4fa0eb} proship, darkship, anticensorship dni }}$
+${\textsf{\color{#4fa0eb} proship, darkship and problomatic comships dni }}$
 <br>
 ${\textsf{\color{#2f77d3} dark romance fans are on thin ice }}$
 <br>
