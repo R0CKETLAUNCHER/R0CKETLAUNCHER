@@ -1,6 +1,6 @@
 ##
 
-> <p align="center"> <sup> BEST VIEWED ON PC !!! </sup> </p>
+> <p align="center"> <sup> best viewed on big screens </sup> </p>
 
 <br>
 <br>
@@ -70,7 +70,7 @@ ${\textsf{\color{#2f77d3} dark romance fans are on thin ice }}$
 
 <div align="center"> 
   
-> <sup> TY JAY FOR INSPO & HELPING ME FIND BORDERS ^_^* </sup>
+> <sup> thanku @putmetorestimnotyourstosave for helping me find borders + allowing me to take inspo! </sup>
 
 ##
 
