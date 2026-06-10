@@ -58,8 +58,6 @@ ${\textsf{\color{#2f77d3} dark romance fans are on thin ice }}$
 
 <img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_8886.png" />
 
-##
-##
 
 
 <br>
