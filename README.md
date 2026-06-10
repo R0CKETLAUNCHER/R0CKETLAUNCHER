@@ -16,7 +16,10 @@
         <br>
        <div align="center"> 
 
+<img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_8886.png" />
+
    ##
+
  
    
 <img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7641.png" />
@@ -51,7 +54,9 @@ ${\textsf{\color{#2f77d3} dark romance fans are on thin ice }}$
 
 <img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7642.png" />
 
+##
 
+<img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_8886.png" />
 
 ##
 ##
