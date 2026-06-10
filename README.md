@@ -5,7 +5,7 @@
 <br>
 <br>
 
-<img align="right" width="250" height="900" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_8841.png">
+<img align="right" width="220" height="900" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_8841.png">
 
 
 
