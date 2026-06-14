@@ -51,8 +51,9 @@ ${\textsf{\color{#2f77d3} dark romance fans are on thin ice }}$
 <br>
 <sup> ${\textsf{\color{#254785} theres more but I'd just block you }}$ </sup> 
    <br>
+   
+[<img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7642.png" />](https://youtu.be/fFuQlfv63Xw?si=KwoM2rcjOi-Ca7d6)
 
-<img width="350" height="100" alt="image" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_7642.png" />
 
 ##
 
