@@ -1,9 +1,7 @@
 ##
 
 > <p align="center"> <sup> best viewed on big screens </sup> </p>
-<div align="center">
-  
-  [rentry](https://rentry.org/machinelauncher) </div> 
+
 <br>
 <br>
 
