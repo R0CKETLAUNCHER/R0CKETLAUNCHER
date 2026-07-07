@@ -16,8 +16,8 @@
 
 <br>
 
+<br>
 
-<details>
-  <summary>dni</summary>
-  <p>yo</p>
-</details>
+<br>
+
+
