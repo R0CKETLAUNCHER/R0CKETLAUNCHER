@@ -15,18 +15,9 @@
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9678.png" alt="atabook link" width="100">
 
 <br>
-</div>
 
-<div align="left"> 
+
 <details>
   <summary>dni</summary>
   <p>yo</p>
-</details>
-
-  </div>
-<div align="right">   
-<details>
-  
-  <summary>dni</summary>
-  <p>This is the hidden information that appears only after you click the summary text above!</p>
 </details>
