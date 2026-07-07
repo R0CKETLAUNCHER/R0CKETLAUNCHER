@@ -3,9 +3,17 @@
 
 <img align="right" width="220" height="360" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9675.png">
 
-<div align="center"> 
+<div align="center">
+
   
+> <sup> forever a wip </sup>
+
+<br>
+
+
  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=e64366&style=flat-square&abbreviated=true&label=grimmchildren)
+
+<br> 
 
  ${\textsf{\color{#b93f59} baz or machine }}$ ${\textsf{\color{#382e4b} it / any }}$
 
@@ -53,5 +61,3 @@ ${\textsf{\color{#b93f59} i hide freely, if im covering someone i probably hid t
 <br>
 
 <br>
-
-
