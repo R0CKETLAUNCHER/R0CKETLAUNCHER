@@ -7,7 +7,7 @@
   
  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=e64366&style=flat-square&abbreviated=true&label=grimmchildren)
 
- ${\textsf{\color{#b93f59} baz or machine }}$ 
+ ${\textsf{\color{#b93f59} baz or machine }}$ ${\textsf{\color{#382e4b} it / any }}$
  
 
 
