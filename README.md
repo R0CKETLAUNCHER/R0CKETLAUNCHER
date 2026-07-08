@@ -27,15 +27,11 @@
   </summary>
   <p> ${\textsf{\color{#b93f59} c×h always unless i have dni or with someone }}$
   <br>
-  ${\textsf{\color{#382e4b} sometimes I'll ignore people SORRY if I do sometimes }}$ 
- <br>   
-  ${\textsf{\color{#382e4b}  i just cant really handle talking to others  }}$ 
-    <br>
-${\textsf{\color{#382e4b} (or i didnt see your whisper) }}$    
-<br>
+  ${\textsf{\color{#382e4b} I make crude/mean jokes if you dont like that just tell me }}$ 
+ <br>      
 ${\textsf{\color{#b93f59} do not copy my skins }}$
-
 <br>
+ ${\textsf{\color{#382e4b} utc +4}}$    <br>
     
   </p>
 </details>
