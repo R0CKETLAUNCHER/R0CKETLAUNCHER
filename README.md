@@ -31,8 +31,9 @@
  <br>      
 ${\textsf{\color{#b93f59} do not copy my skins }}$
 <br>
- ${\textsf{\color{#382e4b} utc +4}}$    <br>
-${\textsf{\color{#b93f59} I can be slow sometimes and im dizzy 24/7 bare with me }}$    
+${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
+  ${\textsf{\color{#b93f59} English isnt my first language and i sometimes struggle }}$ <br> 
+     ${\textsf{\color{#b93f59} with wording things + i forget words sometimes }}$
   </p>
 </details>
 
