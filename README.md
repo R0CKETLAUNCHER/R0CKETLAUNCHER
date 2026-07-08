@@ -32,7 +32,7 @@
 ${\textsf{\color{#b93f59} do not copy my skins }}$
 <br>
  ${\textsf{\color{#382e4b} utc +4}}$    <br>
-    
+${\textsf{\color{#b93f59} I can be slow sometimes and im dizzy 24/7 bare with me }}$    
   </p>
 </details>
 
