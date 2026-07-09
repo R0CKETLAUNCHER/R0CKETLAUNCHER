@@ -10,13 +10,13 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=e64366&style=flat-square&abbreviated=true&label=hibiscus)
+ ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=cb6ec8&style=flat-square&abbreviated=true&label=hibiscus)
 
 <br> 
 
 
 
- ${\textsf{\color{#b93f59} baz or machine }}$ ${\textsf{\color{#382e4b} it / any }}$
+ ${\textsf{\color{#d293cd} baz }}$ ${\textsf{\color{#c86dc1}or }}$ ${\textsf{\color{#bb54ac} machine }}$ ${\textsf{\color{#8d3d8d} it }}$ ${\textsf{\color{#ddd1d6} / }}$ ${\textsf{\color{#7b388c} any }}$
 
 <br>
 
