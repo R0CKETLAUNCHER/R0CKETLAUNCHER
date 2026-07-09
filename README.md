@@ -12,7 +12,6 @@
 <img align="right" width="300" height="200" 
   src="https://file.garden/aZrZgVKh3wfTGmod/5AD57778-B3B9-4E40-81A0-33149FF0E25F.gif">
 
-<div align=center>
   
 > <sup> forever a wip </sup>
 
