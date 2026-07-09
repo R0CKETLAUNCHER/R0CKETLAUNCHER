@@ -32,15 +32,15 @@
   <summary>
   ${\textsf{\color{#d293cd}  byi }}$
   </summary>
-  <p> ${\textsf{\color{#bb54ac} c×h always unless i have dni or with someone }}$
+  <p> ${\textsf{\color{#c86dc1} c×h always unless i have dni or with someone }}$
   <br>
   ${\textsf{\color{#382e4b} I make crude/mean jokes if you dont like that just tell me }}$ 
  <br>      
-${\textsf{\color{#bb54ac} do not copy my skins }}$
+${\textsf{\color{#c86dc1} do not copy my skins }}$
 <br>
 ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
-  ${\textsf{\color{#b93f59} English isnt my first language and i sometimes struggle }}$ <br> 
-     ${\textsf{\color{#b93f59} with wording things + i forget words sometimes }}$
+  ${\textsf{\color{#c86dc1} English isnt my first language and i sometimes struggle }}$ <br> 
+     ${\textsf{\color{#c86dc1} with wording things + i forget words sometimes }}$
   </p>
 </details>
 
@@ -49,10 +49,10 @@ ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me
   ${\textsf{\color{#7b388c}  dni }}$
   </summary>
 
-${\textsf{\color{#b93f59} basic dni crit pretty much }}$
+${\textsf{\color{#c86dc1} basic dni crit pretty much }}$
 <br>
-${\textsf{\color{#382e4b} tfc fans are on thin ice unless i know you }}$
-${\textsf{\color{#b93f59} i hide freely, if im covering someone i probably hid them }}$
+${\textsf{\color{#382e4b} tfc fans are on thin ice unless i know you }}$ <br>
+${\textsf{\color{#c86dc1} i hide freely, if im covering someone i probably hid them }}$
 
  </p>
 </details>
