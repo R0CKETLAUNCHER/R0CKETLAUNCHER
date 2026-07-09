@@ -18,7 +18,7 @@
 <br>
 
 
- ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=cb6ec8&style=flat-square&abbreviated=true&label=hibiscus)
+ ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=cb6ec8&style=flat-square&abbreviated=true&label=)
 
 <br> 
 
@@ -29,13 +29,13 @@
 
 <details>
   <summary>
-  ${\textsf{\color{#d25671}  byi }}$
+  ${\textsf{\color{#d293cd}  byi }}$
   </summary>
-  <p> ${\textsf{\color{#b93f59} c×h always unless i have dni or with someone }}$
+  <p> ${\textsf{\color{#bb54ac} c×h always unless i have dni or with someone }}$
   <br>
   ${\textsf{\color{#382e4b} I make crude/mean jokes if you dont like that just tell me }}$ 
  <br>      
-${\textsf{\color{#b93f59} do not copy my skins }}$
+${\textsf{\color{#bb54ac} do not copy my skins }}$
 <br>
 ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
   ${\textsf{\color{#b93f59} English isnt my first language and i sometimes struggle }}$ <br> 
@@ -45,7 +45,7 @@ ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me
 
 <details>
   <summary>
-  ${\textsf{\color{#382e4b}  dni }}$
+  ${\textsf{\color{#7b388c}  dni }}$
   </summary>
 
 ${\textsf{\color{#b93f59} basic dni crit pretty much }}$
