@@ -1,4 +1,4 @@
-
+<img align="left" width="290" height="290" src="https://file.garden/aZrZgVKh3wfTGmod/830290BA-5474-4949-B722-3CF4B412A6ED.gif">
 <img align="right" width="300" height="200" src="https://file.garden/aZrZgVKh3wfTGmod/3BE28469-027E-457F-882D-CF3ED9BC1071.gif"> <br>
 <br>
 <br>
@@ -8,13 +8,14 @@
 <br>
 <br>
 <br>
+<br>
+<br>
 <img align="right" width="300" height="200" 
   src="https://file.garden/aZrZgVKh3wfTGmod/5AD57778-B3B9-4E40-81A0-33149FF0E25F.gif">
 
-  
-> <sup> forever a wip </sup>
 
-
+<br>
+<br>
 
 
  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=cb6ec8&style=flat-square&abbreviated=true&label=hibiscus)
@@ -24,11 +25,6 @@
 
 
  ${\textsf{\color{#d293cd} baz }}$ ${\textsf{\color{#c86dc1}or }}$ ${\textsf{\color{#bb54ac} machine }}$ ${\textsf{\color{#8d3d8d} it }}$ ${\textsf{\color{#ddd1d6} / }}$ ${\textsf{\color{#7b388c} any }}$
-
-<br>
-
-
-
 
 
 <details>
