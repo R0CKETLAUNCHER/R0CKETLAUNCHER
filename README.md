@@ -1,24 +1,27 @@
-<br>
-<br>
 
-<img align="right" width="220" height="360" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9675.png">
+<img align="right" width="300" height="200" src="https://file.garden/aZrZgVKh3wfTGmod/3BE28469-027E-457F-882D-CF3ED9BC1071.gif"> <br>
+
 
 <div align="center">
 
   
 > <sup> forever a wip </sup>
 
-<br>
 
 
- ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=e64366&style=flat-square&abbreviated=true&label=grimmchildren)
+
+ ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=e64366&style=flat-square&abbreviated=true&label=hibiscus)
 
 <br> 
+
+
 
  ${\textsf{\color{#b93f59} baz or machine }}$ ${\textsf{\color{#382e4b} it / any }}$
 
 <br>
 
+<img align="right" width="300" height="200" 
+  src="https://file.garden/aZrZgVKh3wfTGmod/5AD57778-B3B9-4E40-81A0-33149FF0E25F.gif">
 
 
 <details>
@@ -49,6 +52,9 @@ ${\textsf{\color{#b93f59} i hide freely, if im covering someone i probably hid t
 
  </p>
 </details>
+
+
+
  
 <a href="https://pure-vessel.atabook.org/">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9678.png" alt="atabook link" width="100">
@@ -56,5 +62,6 @@ ${\textsf{\color{#b93f59} i hide freely, if im covering someone i probably hid t
 <br>
 
 <br>
+
 
 <br>
