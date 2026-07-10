@@ -1,5 +1,5 @@
-<img align="left" width="290" height="290" src="https://file.garden/aZrZgVKh3wfTGmod/830290BA-5474-4949-B722-3CF4B412A6ED.gif">
-<img align="right" width="300" height="200" src="https://file.garden/aZrZgVKh3wfTGmod/3BE28469-027E-457F-882D-CF3ED9BC1071.gif"> <br>
+<img align="left" width="290" height="290" src="https://file.garden/aZrZgVKh3wfTGmod/830290BA-5474-4949-B722-3CF4B412A6ED.gif" alt= painting of rose quartz>
+<img align="right" width="300" height="200" src="https://file.garden/aZrZgVKh3wfTGmod/3BE28469-027E-457F-882D-CF3ED9BC1071.gif" alt= pink diamomd laughing> <br>
 <br>
 <br>
 <br>
@@ -11,7 +11,7 @@
 <br>
 <br>
 <img align="right" width="300" height="200" 
-  src="https://file.garden/aZrZgVKh3wfTGmod/5AD57778-B3B9-4E40-81A0-33149FF0E25F.gif">
+  src="https://file.garden/aZrZgVKh3wfTGmod/5AD57778-B3B9-4E40-81A0-33149FF0E25F.gif" alt= a gif of rose quartz shattering pink diamond>
 
 
 <br>
