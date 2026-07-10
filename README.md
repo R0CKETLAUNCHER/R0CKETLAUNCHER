@@ -52,7 +52,7 @@ ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me
 ${\textsf{\color{#c86dc1} basic dni crit pretty much }}$
 <br>
 ${\textsf{\color{#382e4b} tfc fans are on thin ice unless i know you }}$ <br>
-${\textsf{\color{#c86dc1} i hide freely, if im covering someone i probably hid them }}$
+${\textsf{\color{#c86dc1} i hide freely, if im covering someone i probably hid them but PLS TELL ME IF I DO!!}}$
 
  </p>
 </details>
