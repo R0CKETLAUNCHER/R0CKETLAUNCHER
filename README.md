@@ -41,7 +41,7 @@ ${\textsf{\color{#c86dc1} do not copy my skins }}$
 ${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
   ${\textsf{\color{#c86dc1} English isnt my first language and i sometimes struggle }}$ <br> 
      ${\textsf{\color{#c86dc1} with wording things + i forget words sometimes }}$
-    <br> ${\textsf{\color{#c86dc1} im not super talkative, sorry }}$ <img width="20" height="20" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9764.png" alt= pink diamomd laughing>
+    <br> ${\textsf{\color{#c86dc1} im not super talkative, sorry }}$ <img width="20" height="20" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9764.png" alt= sad cat with a tear rolling down its face ponytown emoji>
   </p>
 </details>
 
