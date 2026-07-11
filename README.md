@@ -27,7 +27,7 @@
 
  ${\textsf{\color{#d293cd} baz }}$ ${\textsf{\color{#c86dc1}or }}$ ${\textsf{\color{#bb54ac} machine }}$ ${\textsf{\color{#8d3d8d} it }}$ ${\textsf{\color{#ddd1d6} / }}$ ${\textsf{\color{#7b388c} any }}$
 <br> 
-${\textsf{\color{#7b388c} my }}$ ${\textsf{\color{#8d3d8d} favourite }}$ ${\textsf{\color{#bb54ac} colour }}$ ${\textsf{\color{#c86dc1} is }}$ ${\textsf{\color{#6ca9e5} blue }}$
+${\textsf{\color{#7b388c} my }}$ ${\textsf{\color{#8d3d8d} favourite }}$ ${\textsf{\color{#bb54ac} colour }}$ ${\textsf{\color{#c86dc1} is }}$ ${\textsf{\color{#6687d0} blue }}$
 <br>
 <details>
   <summary>
