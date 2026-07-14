@@ -31,7 +31,7 @@ ${\textsf{\color{#7b388c} my }}$ ${\textsf{\color{#8d3d8d} favourite }}$ ${\text
 <br>
 <details>
   <summary>
-  ${\textsf{\color{#d293cd}  byi }}$
+  ${\textsf{\color{#d293cd}  byi }}$ ${\textsf{\color{#7b388c} + }}$ ${\textsf{\color{#bb54ac} general }}$
   </summary>
   <p> ${\textsf{\color{#c86dc1} c×h always unless i have dni or with someone }}$
   <br>
