@@ -62,7 +62,7 @@ ${\textsf{\color{#c86dc1} i hide+block freely, if im covering someone i probably
 
 
  
-<a href="https://static.wikitide.net/phightingwiki/4/47/Placeholder.png">
+<a href="https://pure-vessel.atabook.org/">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9744.png" alt="atabook link" width="100">
 
 <br>
