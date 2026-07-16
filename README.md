@@ -1,3 +1,4 @@
+
 <img align="left" width="290" height="290" src="https://file.garden/aZrZgVKh3wfTGmod/830290BA-5474-4949-B722-3CF4B412A6ED.gif" alt= painting of rose quartz>
 <img align="right" width="300" height="200" src="https://file.garden/aZrZgVKh3wfTGmod/3BE28469-027E-457F-882D-CF3ED9BC1071.gif" alt= pink diamomd laughing> <br>
 <br>
@@ -25,7 +26,7 @@
 
 
 
- ${\textsf{\color{#d293cd} baz }}$ ${\textsf{\color{#c86dc1}or }}$ ${\textsf{\color{#bb54ac} machine }}$ ${\textsf{\color{#8d3d8d} it }}$ ${\textsf{\color{#ddd1d6} / }}$ ${\textsf{\color{#7b388c} any }}$
+${\textsf{\color{#d293cd} XXX }}$ ${\textsf{\color{#c86dc1}or }}$ ${\textsf{\color{#bb54ac} XXX }}$ ${\textsf{\color{#8d3d8d} it }}$ ${\textsf{\color{#ddd1d6} / }}$ ${\textsf{\color{#7b388c} any }}$
 <br> 
 ${\textsf{\color{#7b388c} my }}$ ${\textsf{\color{#8d3d8d} favourite }}$ ${\textsf{\color{#bb54ac} colour }}$ ${\textsf{\color{#c86dc1} is }}$ ${\textsf{\color{#6687d0} blue }}$
 <br>
