@@ -65,11 +65,11 @@ ${\textsf{\color{#c86dc1} i hide+block freely, if im covering someone i probably
 
 
 <a href="https://launcher077.straw.page/home">
-  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9744.png" alt="atabook link" width="100">
+  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0589.png" alt="strawpage link" height=“800” width="100">
   
  
 <a href="https://pure-vessel.atabook.org/">
-  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9744.png" alt="atabook link" width="100">
+  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9744.png" alt="atabook link" width=90">
 
 <br>
 
