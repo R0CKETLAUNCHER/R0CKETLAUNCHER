@@ -7,3 +7,21 @@
 <br>
 <img align="left" width="400" height="400" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0731.png" alt= the_mikes_from_deltarune > 
 
+<div align=“center”
+  
+<br>
+<br>
+  <table>
+    <tr>
+      <td>
+
+
+  
+    
+${\textsf{\color{#7E799A} sebastian  }}$ ${\textsf{\color{#FBF9E3} it  }}$ ${\textsf{\color{#EA615B} *  }}$ ${\textsf{\color{#C7C767} any  }}$
+          <br>
+      </td>
+    </tr>
+  </table>
+
+</div>
