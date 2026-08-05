@@ -33,20 +33,19 @@ ${\textsf{\color{#7E799A} sebastian  }}$ ${\textsf{\color{#FBF9E3} it  }}$ ${\te
 <br>
 <details>
   <summary>
-  ${\textsf{\color{#d293cd}  byi }}$ ${\textsf{\color{#7b388c} + }}$ ${\textsf{\color{#bb54ac} general }}$
+  ${\textsf{\color{#a33c5f}  byi }}$ ${\textsf{\color{#FBF9E3} + }}$ ${\textsf{\color{#C7C767} general }}$
   </summary>
-  <p> ${\textsf{\color{#c86dc1} c×h always unless i have dni or with someone }}$
+  <p> ${\textsf{\color{#7E799A} c×h always unless i have dni or with someone }}$
   <br>
-  ${\textsf{\color{#382e4b} I make crude/mean jokes if you dont like that just tell me }}$ 
+  ${\textsf{\color{#C7C767} I make crude/mean jokes if you dont like that just tell me }}$ 
  <br>      
-${\textsf{\color{#c86dc1} do not copy my skins }}$
+${\textsf{\color{#7E799A} do not copy my skins }}$
 <br>
-${\textsf{\color{#382e4b} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
-  ${\textsf{\color{#c86dc1} English isnt my first language and i sometimes struggle }}$ <br> 
-    
-  ${\textsf{\color{#c86dc1} with wording things + i forget words sometimes }}$
-    <br> ${\textsf{\color{#382e4b} im not super talkative, sorry }}$ <img width="20" height="20" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9764.png" alt= sad cat with a tear rolling down its face ponytown emoji> <br>
-${\textsf{\color{#c86dc1} please be direct with me if you want something }}$ <br> ${\textsf{\color{#c86dc1} I’m here to have a convo with you not solve your riddles }}$
+${\textsf{\color{#C7C767} I can be slow sometimes and im dizzy 24/7 bare with me }}$ <br>
+  ${\textsf{\color{#7E799A} English isnt my first language and i sometimes struggle }}$ <br>    
+  ${\textsf{\color{#7E799A} with wording things + i forget words sometimes }}$
+    <br> ${\textsf{\color{#C7C767} im not super talkative, sorry }}$ <img width="20" height="20" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9764.png" alt= sad cat with a tear rolling down its face ponytown emoji> <br>
+${\textsf{\color{#7E799A} please be direct with me if you want something }}$ <br> ${\textsf{\color{#7E799A} I’m here to have a convo with you not solve your riddles }}$
   </p>
 </details> 
 
