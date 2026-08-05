@@ -53,8 +53,11 @@ ${\textsf{\color{#7E799A} please be direct/blunt with me if you want something }
 </details> 
 
 
+<br>
+<img  width="120" height=150" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0739.jpeg" alt= 62_yen_japan_stamp > 
 
-
+<br>
+<br>
 <a href="https://launcher077.straw.page/home">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0736.png" alt="strawpage_link" height=“800” width="200">
   <a href="https://pure-vessel.atabook.org/">
