@@ -14,7 +14,7 @@
 </br>
 </br></br>
 
- ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=EA615B&style=flat-square&abbreviated=true&label=MIKES)
+ ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=EA615B&style=for-the-badge&abbreviated=true&label=MIKES)
 
   
 <br>
