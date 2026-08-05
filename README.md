@@ -54,7 +54,6 @@ ${\textsf{\color{#7E799A} please be direct with me if you want something }}$ <br
 
 <a href="https://launcher077.straw.page/home">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0736.png" alt="strawpage_link" height=“800” width="200">
-<br>
   <a href="https://pure-vessel.atabook.org/">
   <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0735.png" alt="atabook_link" width=220 height=“800” " >
 
