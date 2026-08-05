@@ -10,7 +10,7 @@
 <br>
 <img  width="400" height="400" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_0731.png" alt= the_mikes_from_deltarune > 
 
-
+[](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=EA615B&style=flat-square&abbreviated=true&label=MIKES)
 
   
 <br>
