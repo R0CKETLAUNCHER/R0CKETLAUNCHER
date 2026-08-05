@@ -48,7 +48,7 @@ ${\textsf{\color{#C7C767} I can be slow sometimes and im dizzy 24/7 bare with me
   ${\textsf{\color{#7E799A} English isnt my first language and i sometimes struggle }}$ <br>    
   ${\textsf{\color{#7E799A} with wording things + i forget words sometimes }}$
     <br> ${\textsf{\color{#C7C767} im not super talkative, sorry }}$ <img width="20" height="20" src="https://file.garden/aZrZgVKh3wfTGmod/IMG_9764.png" alt= sad cat with a tear rolling down its face ponytown emoji> <br>
-${\textsf{\color{#7E799A} please be direct with me if you want something }}$ <br> ${\textsf{\color{#7E799A} I’m here to have a convo with you not solve your riddles }}$
+${\textsf{\color{#7E799A} please be direct/blunt with me if you want something }}$ <br> ${\textsf{\color{#7E799A} I’m here to have a convo with you not solve your riddles }}$
   </p>
 </details> 
 
