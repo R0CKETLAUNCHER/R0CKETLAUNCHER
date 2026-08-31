@@ -6,7 +6,7 @@
 
 
  
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=d3443f&style=for-the-badge&abbreviated=true&label=cogheart_pieces) 
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=d3453f&style=for-the-badge&abbreviated=true&label=cogheart_pieces) 
 
 <br>
   <table>
