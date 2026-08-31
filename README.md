@@ -36,8 +36,8 @@ ${\textsf{\color{#881c27} do not copy }}$ <br> ${\textsf{\color{#881c27} nor pos
 <details>
   <summary> ${\textsf{\color{#881c27} cute people }}$ </summary>
   </p>
- <a href="https://github.com/echoing-777s">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> 
- <br> ${\textsf{\color{#d3443f}  you guys are all so awesome}}$
+ <a href="https://github.com/echoing-777s">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
+ <br> ${\textsf{\color{#d3443f}  you guys are all such sweet people :-)}}$
  <br> <a href="https://github.com/weavenest">my evil twin</a> 
 </details>   
 
