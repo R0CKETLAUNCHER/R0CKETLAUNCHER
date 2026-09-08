@@ -1,53 +1,43 @@
-
-<img align="right" width="400" height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_2366.png"> 
-<div align="center">  
-
-> <sup><i>made for dark mode & big screens</i></sup>
-
-
- 
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=d3583f&style=for-the-badge&abbreviated=true&label=cogheart_pieces) 
+<img align = left width="250" height="330" alt="IMG_2630" src="https://github.com/user-attachments/assets/198e2e7d-7b48-4727-8696-042bc967e06d" />
 
 <br>
+
+<div align="center">  
+  
+  ![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=c9266a&style=for-the-badge&abbreviated=true&label=cogheart_pieces) 
+
+  
   <table>
     <tr>
       <td>
 
 <div align="center">  
+
   
-  
-${\textsf{\color{#881c27} sebastian  }}$ <br> ${\textsf{\color{#dfdac0} it  }}$ ${\textsf{\color{#881c27}  ✿  }}$ ${\textsf{\color{#d3443f}  machine  }}$ ${\textsf{\color{#881c27}  ✿  }}$ ${\textsf{\color{#dfdac0} any  }}$
+${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ ${\textsf{\color{#992052}  ✿  }}$ ${\textsf{\color{#d46c8b}  machine  }}$ ${\textsf{\color{#992052}  ✿  }}$ ${\textsf{\color{#dbc3ca} any  }}$
           <br>
       </td>
     </tr>
   </table>
+
+${\textsf{\color{#992052} I block freely. }}$
+<details>
+  <summary> ${\textsf{\color{#b0306b} friends }}$ </summary>
+  </p>
+ <a href="https://github.com/cupiidshot">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
+ <br> ${\textsf{\color{#d46c8b}  you guys are all such sweet people :-)}}$
+ <br> <a href="https://github.com/weavenest">other account</a> 
+</details>   
+<br>
 <br>
 
-${\textsf{\color{#881c27} do not copy }}$ <br> ${\textsf{\color{#881c27} nor post my skins anywhere}}$ <br> ${\textsf{\color{#d3443f} ask for inspo }}$
-<br> <br> ${\textsf{\color{#dfdac0} i Like phighting, hollowknight }}$ <br> ${\textsf{\color{#dfdac0} and deltarune }}$
 
 ##
-</div>
-
-<div align="center">  
-<img align="left" width="300" height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_2367.png"> 
 
 <br>
-<details>
-  <summary> ${\textsf{\color{#881c27} cute people }}$ </summary>
-  </p>
- <a href="https://github.com/echoing-777s">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
- <br> ${\textsf{\color{#d3443f}  you guys are all such sweet people :-)}}$
- <br> <a href="https://github.com/weavenest">my evil twin</a> 
-</details>   
 
-${\textsf{\color{#d3443f} basic dni crit I block freely }}$ 
+> <sup><I> no links for now</I> </sup>
 
-<a href="https://launcher077.straw.page/home">
-  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_2368.png" alt="strawpage_link" height=“300” width="100">
-  <a href="https://pure-vessel.atabook.org/">
-  <img src="https://file.garden/aZrZgVKh3wfTGmod/IMG_2369.png" alt="atabook_link" width=100 height=“250” " >
-
-
-
-
+${\textsf{\color{#992052}  DNC if you wanna take inspo ask me  }}$
+<br> 
+${\textsf{\color{#bd4a7d}  I ❤︎⁠ hollowknight, deltarune and phighting int if you like any of these  }}$
