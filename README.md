@@ -16,12 +16,11 @@
 
   
 ${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ ${\textsf{\color{#992052}  ✿  }}$ ${\textsf{\color{#d46c8b}  machine  }}$ ${\textsf{\color{#992052}  ✿  }}$ ${\textsf{\color{#dbc3ca} any  }}$
-          <br>
       </td>
     </tr>
   </table>
 <details>
-  <summary> ${\textsf{\color{#b0306b} friends }}$ </summary>
+  <summary>  ${\textsf{\color{#b0306b} friends }}$ </summary>
   </p>
   <img width="100" height="100" alt="IMG_2640" src="https://github.com/user-attachments/assets/e4df0d65-6948-4fc1-a74c-ed2adcf4044b" />
   <br> 
@@ -29,7 +28,7 @@ ${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ 
  <br> ${\textsf{\color{#d46c8b}  you guys are all such sweet people :-)}}$
  <br> <a href="https://github.com/weavenest">other account</a> 
 </details>   
-<br>
+
 
 ${\textsf{\color{#992052} I block freely. }}$
 <br>
