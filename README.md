@@ -1,4 +1,5 @@
-<img align = left width="250" height="330" alt="IMG_2630" src="https://github.com/user-attachments/assets/198e2e7d-7b48-4727-8696-042bc967e06d" />
+
+<img align = left width="270" height="370" alt="IMG_2630" src="https://github.com/user-attachments/assets/198e2e7d-7b48-4727-8696-042bc967e06d" />
 
 <br>
 
@@ -19,18 +20,25 @@ ${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ 
       </td>
     </tr>
   </table>
-
-${\textsf{\color{#992052} I block freely. }}$
 <details>
   <summary> ${\textsf{\color{#b0306b} friends }}$ </summary>
   </p>
+  <img width="100" height="100" alt="IMG_2640" src="https://github.com/user-attachments/assets/e4df0d65-6948-4fc1-a74c-ed2adcf4044b" />
+  <br> 
  <a href="https://github.com/cupiidshot">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
  <br> ${\textsf{\color{#d46c8b}  you guys are all such sweet people :-)}}$
  <br> <a href="https://github.com/weavenest">other account</a> 
 </details>   
 <br>
-<br>
 
+${\textsf{\color{#992052} I block freely. }}$
+<br>
+${\textsf{\color{#992052}  DNC if you wanna take inspo ask me  }}$
+<br> 
+${\textsf{\color{#bd4a7d}  I ❤︎⁠ hollowknight, deltarune and phighting  }}$ <br>
+${\textsf{\color{#d46c8b}int if you like any of these  }}$
+
+<br><br>
 
 ##
 
@@ -38,6 +46,3 @@ ${\textsf{\color{#992052} I block freely. }}$
 
 > <sup><I> no links for now</I> </sup>
 
-${\textsf{\color{#992052}  DNC if you wanna take inspo ask me  }}$
-<br> 
-${\textsf{\color{#bd4a7d}  I ❤︎⁠ hollowknight, deltarune and phighting int if you like any of these  }}$
