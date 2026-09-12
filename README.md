@@ -32,7 +32,7 @@ ${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ 
 
 ${\textsf{\color{#992052} I block freely. }}$
 <br>
-${\textsf{\color{#992052}  DNC if you wanna take inspo ask me  }}$
+${\textsf{\color{#b0306b}  DNC if you wanna take inspo ask me  }}$
 <br> 
 ${\textsf{\color{#bd4a7d}  I ❤︎⁠ hollowknight, deltarune and phighting  }}$ <br>
 ${\textsf{\color{#d46c8b}int if you like any of these  }}$
