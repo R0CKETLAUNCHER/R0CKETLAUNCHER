@@ -20,7 +20,7 @@ ${\textsf{\color{#b0306b} sebastian  }}$ <br> ${\textsf{\color{#dbc3ca} it  }}$ 
     </tr>
   </table>
 <details>
-  <summary>  ${\textsf{\color{#b0306b} friends }}$ </summary>
+  <summary>  ${\textsf{\color{#dbc3ca} friends }}$ </summary>
   </p>
   <img width="100" height="100" alt="IMG_2640" src="https://github.com/user-attachments/assets/e4df0d65-6948-4fc1-a74c-ed2adcf4044b" />
   <br> 
