@@ -12,4 +12,5 @@
 <I> it / machine / any</I>
 
 <br>
-basic dni I block freely <br> dni if your affiliated with unusualwolf in any way
+basic dni I block freely <br> dni if your affiliated with unusualw0lf in any way <br>
+I dont want to be around that creeps friends
