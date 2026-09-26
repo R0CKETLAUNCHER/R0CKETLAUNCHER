@@ -28,7 +28,7 @@ ${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliat
   <summary> ${\textsf{\color{#D04C72} cute people }}$ </summary>
   </p>
  <a href="https://github.com/cupiidshot">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
- <br> ${\textsf{\color{#F6DCCD}  you guys are all such sweet people :-)}}$
+ <br> ${\textsf{\color{#E2D7D2}  you guys are all such sweet people :-)}}$
  <br> <a href="https://github.com/weavenest">other </a> <a href="https://github.com/cogheart"> accounts </a> 
 </details>   
 
