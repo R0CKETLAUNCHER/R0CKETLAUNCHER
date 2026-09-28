@@ -24,7 +24,7 @@ ${\textsf{\color{#353D55} ROCKET  }}$ ${\textsf{\color{#c53c62} MACHINE  }}$ <br
 
   ${\textsf{\color{#E2D7D2} unlabelled }}$ ${\textsf{\color{#b6365a} acespec }}$
 
-${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliated with unusualw0ld  }}$ <br> ${\textsf{\color{#816E73}I block freely, dnc  }}$
+${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliated with unusualw0lf  }}$ <br> ${\textsf{\color{#816E73}I block freely, dnc  }}$
 
 <details>
   <summary> ${\textsf{\color{#D04C72} cute people }}$ </summary>
