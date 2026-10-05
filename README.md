@@ -2,8 +2,8 @@
  
 <img a width="700"  src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3290.png"> 
 
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=aa3864&style=for-the-badge&label=cogheart_pieces) 
- 
+[![Hits](https://hits.sh/github.com.svg?style=for-the-badge&label=COGHEART%20PIECES&color=aa3864&labelColor=E2D7D2)](https://hits.sh/github.com/)
+
  <img align="right" width="400" height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3286.png"> 
  
 
