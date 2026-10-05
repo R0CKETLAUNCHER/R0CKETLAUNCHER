@@ -2,7 +2,7 @@
  
 <img a width="700"  src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3290.png"> 
 
-![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=aa3864&style=for-the-badge&abbreviated=true&label=cogheart_pieces) 
+![](https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&color=aa3864&style=for-the-badge&label=cogheart_pieces) 
  
  <img align="right" width="400" height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3286.png"> 
  
