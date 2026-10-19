@@ -28,7 +28,7 @@ ${\textsf{\color{#353D55} ROCKET  }}$ ${\textsf{\color{#c53c62} MACHINE  }}$ <br
 ${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliated with unusualw0lf  }}$ <br> ${\textsf{\color{#816E73}I block freely, dnc  }}$
 
 <details>
-  <summary> ${\textsf{\color{#D04C72} cute people }}$ </summary>
+  <summary> ${\textsf{\color{#D04C72} ♡ }}$ </summary>
   </p>
  <a href="https://github.com/taxduo4ever">vegas</a>
  <a href="https://github.com/cupiidshot">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
