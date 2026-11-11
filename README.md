@@ -4,31 +4,26 @@
 
 [![Hits](https://hits.sh/github.com.svg?style=for-the-badge&label=COGHEART%20PIECES&color=aa3864&labelColor=E2D7D2)](https://hits.sh/github.com/)
 
- <img align="right" width="400" height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3286.png"> 
  
 
   
- <br>
-  <table>
-    <tr>
-      <td>
-
-<div align="center">  
-
+ 
   
-${\textsf{\color{#353D55} ROCKET  }}$ ${\textsf{\color{#c53c62} MACHINE  }}$ <br> ${\textsf{\color{#353D55} sebastian  }}$ <br> ${\textsf{\color{#4B4E5D} it  }}$ ${\textsf{\color{#b6365a}  ✿  }}$ ${\textsf{\color{#E2D7D2}  machine  }}$ ${\textsf{\color{#b6365a}  ✿  }}$ ${\textsf{\color{#4B4E5D} any  }}$ <br>
-[prns page ](https://en.pronouns.page/@R0CKETLAUNCHER)
-          <br>
-      </td>
-    </tr>
-  </table>
+ ${\textsf{\color{#AA3864} machine }}$ ${\textsf{\color{#E2D7D2}  or  }}$ ${\textsf{\color{#353D55} sebastian  }}$ <br> ${\textsf{\color{#4B4E5D} it  }}$ ${\textsf{\color{#AA3864}  ✿  }}$ ${\textsf{\color{#E2D7D2}  machine  }}$ ${\textsf{\color{#AA3864}  ✿  }}$ ${\textsf{\color{#4B4E5D} any  }}$ <br>
 
-  ${\textsf{\color{#E2D7D2} unlabelled }}$ ${\textsf{\color{#b6365a} arospec }}$
+##
 
-${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliated with unusualw0lf  }}$ <br> ${\textsf{\color{#816E73}I block freely, dnc  }}$
 
+   <br>
+   
+  ${\textsf{\color{#E2D7D2} basic }}$ ${\textsf{\color{#AA3864} dni }}$
+
+${\textsf{\color{#4B4E5D} i block freely }}$ <br>
+${\textsf{\color{#6A636C}dnc inspo is ok  }}$
 <details>
-  <summary> ${\textsf{\color{#D04C72} ♡ }}$ </summary>
+ 
+ 
+  <summary> ${\textsf{\color{#AA3864} ♡ }}$ </summary>
   </p>
  <a href="https://github.com/taxduo4ever">vegas</a>
  <a href="https://github.com/cupiidshot">Zaph</a> <a href="https://github.com/putmetorestimnotyourstosave">Jay</a> <a href="https://github.com/dr-vanta">Vanta</a> <a href="https://github.com/star-employee">Zixuan</a> 
@@ -43,3 +38,6 @@ ${\textsf{\color{#4B4E5D} dni if your }}$ <br> ${\textsf{\color{#6A636C}affiliat
 
 <img height=“300” src="https://file.garden/aZrZgVKh3wfTGmod/IMG_3285.png"> 
   
+
+
+
