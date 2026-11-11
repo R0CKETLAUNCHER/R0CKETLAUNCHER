@@ -19,8 +19,8 @@
   ${\textsf{\color{#E2D7D2} basic }}$ ${\textsf{\color{#AA3864} dni }}$
 
 ${\textsf{\color{#4B4E5D} i block freely }}$ <br>
-${\textsf{\color{#6A636C}dnc inspo is ok  }}$
-${\textsf{\color{#816E73}I I like hollowknight/ss, phighting!, $ <br>${\textsf{\color{#816E73} deltarune and smg4/cav  }}$
+${\textsf{\color{#6A636C}dnc inspo is ok  }}$ <br>
+${\textsf{\color{#816E73}I I like hollowknight/ss, phighting!, }}$ <br>${\textsf{\color{#847474} deltarune and smg4/cav  }}$
 
 <details>
  
